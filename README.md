@@ -1,88 +1,42 @@
+![](https://raw.githubusercontent.com/juyuange9/jygtv6/master/jyg.jpg)
+![](https://raw.githubusercontent.com/juyuange9/jygtv6/master/150.png)
+### 轻松翻墙，从聚缘阁开始！
+ 【公告】聚缘阁代理安卓版有新版本了2017/2/17
 
+[官方下载](https://github.com/juyuange/jygtv6/raw/master/j.apk)|[备份下载](https://jdao.g888.eu.org/xiazai/jyg217.apk)
 
+**发现有效网址，请收藏备用或者推广给需要的朋友使用。**
+*** 
+## 加密代理
 
+[动态网入口](https://t87.sd99.eu.org/68/ca)|  [无界网入口](https://t87.sd99.eu.org/2/tw)  |  
 
+[聚缘阁禁闻导航](https://dh9a.mytg.eu.org/) | [聚缘阁禁闻导航](https://dao4.home.cleansite.info/) | [聚缘阁](https://68j.fa99.eu.org/)   
+## 赶快三退
+[退党网一](https://t87.sd99.eu.org/8/tui)|[退党网一](https://e23e.jyg9.eu.org/t-1-3)
 
-
-免费下载无界浏览
-
-16.03版 (7月10日)
-
-(使用前请查证数字签名)
-
-下载安卓翻墙：无界一点通  
-(9月22日发布)
-
-
-
-当前网址
-无界一点通:https://git.io/v6836
-无界浏览:https://git.io/vEJlj
- Linux 版:https://git.io/vKGnV
-亦可从以下二维条码下载: 
-  
-
-无界一点通(安卓)    无界浏览 
-
-
-
-其它翻墙工具
-自由门   爱博电视   花园网
-自由门安卓版   新唐人安卓版 
-
-
-
+***
+## 新闻网站
+ [明慧网](https://t87.sd99.eu.org/3/44)     |  [大纪元](https://t87.sd99.eu.org/7/69) |  [禁闻-禁书网](https://t87.sd99.eu.org/136/) |[希望之星](https://t87.sd99.eu.org/9/74) 
  
-退出中共党 (团、队) 
-至今已有:
- 
+[看中国](https://t87.sd99.eu.org/11/kk)      |[新唐人](https://t87.sd99.eu.org/5/654) |  [阿波罗](https://t87.sd99.eu.org/13/aboluo.com)    |  [中国观察](https://t87.sd99.eu.org/asp?=YmcvdGVuLmVjaW92eWFiLnJlbmltYXhlYW5paGMvL0EzJXB0dGg=)
+***
+## 新唐人视频
+ [今日点击](https://t87.sd99.eu.org/asp?=bG10aC5CQjUyJTc4NTIlNUU1MiU5QjUyJTI4NTIlN0U1MiU1QTUyJTc5NTIlNkU1MiVBODUyJUJCNTIlNEU1MiUvbG10aC43MDFnb3JwL2JnL3J0eC9tb2MudnRkdG4ubmMvL0EzJXB0dGg=)| 
+ [热点互动](https://t87.sd99.eu.org/asp?=bG10aC5EQTUyJTI5NTIlNkU1MiU0QjUyJUI5NTIlN0U1MiU4QTUyJUE4NTIlNUU1MiUyOTUyJUFCNTIlNEU1MiU5QjUyJTI4NTIlN0U1MiVEQTUyJTM4NTIlN0U1MiUvbG10aC45OWdvcnAvYmcvcnR4L21vYy52dGR0bi5uYy8vQTMlcHR0aA==)|
+ [中国禁闻](https://t87.sd99.eu.org/asp?=bG10aC5CQjUyJTc5NTIlOUU1MiUxODUyJTZBNTIlN0U1MiVEQjUyJUI5NTIlNUU1MiVEQTUyJThCNTIlNEU1MiUvbG10aC45Mjhnb3JwL2JnL3J0eC9tb2MudnRkdG4ubmMvL0EzJXB0dGg=)|
+ [微视频](https://t87.sd99.eu.org/asp?=bG10aC4xOTUyJTJBNTIlOUU1MiU2ODUyJTdBNTIlOEU1MiVFQTUyJUVCNTIlNUU1MiUvbG10aC44MjExZ29ycC9iZy9ydHgvbW9jLnZ0ZHRuLm5jLy9BMyVwdHRo)
+
+***
+
+## 本页网址
+https://git.io/jyg10
+
+https://x.co/jyg8
+
+https://x.co/juyuange 
+
+https://github.com/juyuange9/55
 
 
-持续上无界网的方法
-1.下载无界软件来翻墙是最好的办法
-2.获取无界最新的下载网址:
-发电邮给xiazai@upup.info, 或给无界的SKYPE帐号wujieliulan.com发任意短信。更多方法... 
 
-
-网站导航
-
-媒体
-大纪元  新唐人中文电视  明慧网
-希望之声广播  看中国  阿波罗网 
-人民报  正见网  世界之门
-新三才  新生网  大裤衩 
-社交
-Facebook Twitter 部落格 优美客 YouTube 
-其它
-新纪元周刊 美国之音 自由亚洲
-维基百科 华尔街日报 中国事务
-退党中心  中国人权 中央社 更多 » 
-
-
-即时新闻
-
-• 大陆资金大量涌入香港股市 业界解析原因 
-• 刺杀金正男印尼女嫌 会韩语在朝鲜演过电影 
-• 郭文贵推特爆料：省政法委书记连磕9个响头 
-• 毛泽东秘书田家英文革自杀 
-• 韩媒：刺杀金正男策划实施演练3个月 由高级特务李勇负责(图) 
-• 传刺杀金正男的两名朝鲜女特工已遭灭口 
-• 卤牛肉秘诀：用上这个配方，美味又有嚼劲，一上桌就被抢光！ 
-• 大陆H7N9禽流感 上周突增病例61 死亡7人 
-• 为躲避惩罚，这名诈骗犯假装昏迷两年，最终不逃过“天眼” 
-• 姜昆被指移民美国一句话回应 网友:他心虚(组图) 
-• 陈思敏：十九大风向标之薄熙来2个老搭档 
-• 白宫高官释强烈信号：中共欺凌他国是真正威胁 
-• 前最高法副院长奚晓明被判囚无期 儿子也难幸免 
-• 【翻墙必看】金正男遇刺 折射中共与朝鲜政局生变 
-• 刺金正男女嫌拥双重身份  数年内从女傭变身刺客 
-• 实名制太坑人！仅用手机号就能扒出28类个人信息 
-• 黄洁夫报导被全删 专家揭秘背后的高层博弈 
-• 死因无结论 马来警方对金正男尸体二度解剖 
-• 超离谱！“金正男”未死？发短信索取救助金要回国篡位 
-• 前河北书记周本顺获刑15年 传曾参与江派政变 
-• 金正男遭害 六名特工嫌犯画面全曝光 
-• 千百度：癌细胞转移肺患者为何绝处逢生？ 
-• 疑金正男遇刺后画面曝光 双眼紧闭瘫软座椅 
-• 多名前高官被逮捕 河南省官场持续被清洗 
-• 【今日点击】香港警察判囚 习近平低调清扫曾庆
