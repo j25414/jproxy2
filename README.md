@@ -9,7 +9,7 @@
 *** 
 ## 加密代理
 
-[动态网入口](https://t87.sd99.eu.org/68/ca)|  [无界网入口](https://t87.sd99.eu.org/2/tw)  |  
+[动态网入口](https://t87.sd99.eu.org/6987/)|  [无界网入口](https://t87.sd99.eu.org/2/124)  |  
 
 [聚缘阁禁闻导航](https://dh9a.mytg.eu.org/) | [聚缘阁禁闻导航](https://dao4.home.cleansite.info/) | [聚缘阁](https://68j.fa99.eu.org/)   
 ## 赶快三退
@@ -19,13 +19,13 @@
 ## 新闻网站
  [明慧网](https://t87.sd99.eu.org/3/44)     |  [大纪元](https://t87.sd99.eu.org/7/69) |  [禁闻-禁书网](https://t87.sd99.eu.org/136/) |[希望之星](https://t87.sd99.eu.org/9/74) 
  
-[看中国](https://t87.sd99.eu.org/11/kk)      |[新唐人](https://t87.sd99.eu.org/5/654) |  [阿波罗](https://t87.sd99.eu.org/13/aboluo.com)    |  [中国观察](https://t87.sd99.eu.org/asp?=YmcvdGVuLmVjaW92eWFiLnJlbmltYXhlYW5paGMvL0EzJXB0dGg=)
+[看中国](https://t87.sd99.eu.org/11/kk)      |[新唐人](https://t87.sd99.eu.org/5/654) |  [阿波罗](https://t87.sd99.eu.org/13/aboluo.com)    |  [中国观察](https://t87.sd99.eu.org/e=YmcvdGVuLmVjaW92eWFiLnJlbmltYXhlYW5paGMvL0EzJXB0dGg=)
 ***
 ## 新唐人视频
- [今日点击](https://t87.sd99.eu.org/asp?=bG10aC5CQjUyJTc4NTIlNUU1MiU5QjUyJTI4NTIlN0U1MiU1QTUyJTc5NTIlNkU1MiVBODUyJUJCNTIlNEU1MiUvbG10aC43MDFnb3JwL2JnL3J0eC9tb2MudnRkdG4ubmMvL0EzJXB0dGg=)| 
- [热点互动](https://t87.sd99.eu.org/asp?=bG10aC5EQTUyJTI5NTIlNkU1MiU0QjUyJUI5NTIlN0U1MiU4QTUyJUE4NTIlNUU1MiUyOTUyJUFCNTIlNEU1MiU5QjUyJTI4NTIlN0U1MiVEQTUyJTM4NTIlN0U1MiUvbG10aC45OWdvcnAvYmcvcnR4L21vYy52dGR0bi5uYy8vQTMlcHR0aA==)|
- [中国禁闻](https://t87.sd99.eu.org/asp?=bG10aC5CQjUyJTc5NTIlOUU1MiUxODUyJTZBNTIlN0U1MiVEQjUyJUI5NTIlNUU1MiVEQTUyJThCNTIlNEU1MiUvbG10aC45Mjhnb3JwL2JnL3J0eC9tb2MudnRkdG4ubmMvL0EzJXB0dGg=)|
- [微视频](https://t87.sd99.eu.org/asp?=bG10aC4xOTUyJTJBNTIlOUU1MiU2ODUyJTdBNTIlOEU1MiVFQTUyJUVCNTIlNUU1MiUvbG10aC44MjExZ29ycC9iZy9ydHgvbW9jLnZ0ZHRuLm5jLy9BMyVwdHRo)
+ [今日点击](https://t87.sd99.eu.org/e=bG10aC5CQjUyJTc4NTIlNUU1MiU5QjUyJTI4NTIlN0U1MiU1QTUyJTc5NTIlNkU1MiVBODUyJUJCNTIlNEU1MiUvbG10aC43MDFnb3JwL2JnL3J0eC9tb2MudnRkdG4ubmMvL0EzJXB0dGg=)| 
+ [热点互动](https://t87.sd99.eu.org/e=bG10aC5EQTUyJTI5NTIlNkU1MiU0QjUyJUI5NTIlN0U1MiU4QTUyJUE4NTIlNUU1MiUyOTUyJUFCNTIlNEU1MiU5QjUyJTI4NTIlN0U1MiVEQTUyJTM4NTIlN0U1MiUvbG10aC45OWdvcnAvYmcvcnR4L21vYy52dGR0bi5uYy8vQTMlcHR0aA==)|
+ [中国禁闻](https://t87.sd99.eu.org/e=bG10aC5CQjUyJTc5NTIlOUU1MiUxODUyJTZBNTIlN0U1MiVEQjUyJUI5NTIlNUU1MiVEQTUyJThCNTIlNEU1MiUvbG10aC45Mjhnb3JwL2JnL3J0eC9tb2MudnRkdG4ubmMvL0EzJXB0dGg=)|
+ [微视频](https://t87.sd99.eu.org/e=bG10aC4xOTUyJTJBNTIlOUU1MiU2ODUyJTdBNTIlOEU1MiVFQTUyJUVCNTIlNUU1MiUvbG10aC44MjExZ29ycC9iZy9ydHgvbW9jLnZ0ZHRuLm5jLy9BMyVwdHRo)
 
 ***
 
