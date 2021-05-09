@@ -1,23 +1,64 @@
-![](https://raw.githubusercontent.com/juyuange9/jygtv6/master/jyg.jpg)
-![](https://raw.githubusercontent.com/juyuange9/jygtv6/master/150.png)
-### 轻松翻墙，从聚缘阁开始！
- 【公告】聚缘阁代理安卓版有新版本了2021/5/9
+## 轻松翻墙从聚缘阁开始
 
-[官方下载](https://gitlab.com/juyuange/2/-/raw/master/j3025.apk)
+**【重要提示】别使用国内的浏览器访问本站，请使用google浏览器。**
 
-**发现有效网址，请收藏备用或者推广给需要的朋友使用。**
-*** 
-## 聚缘阁代理镜像
+**电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的。**
 
-[动态网入口](![](https://raw.githubusercontent.com/juyuange9/jygtv6/master/jyg.jpg)
-![](https://raw.githubusercontent.com/juyuange9/jygtv6/master/150.png)
-### 轻松翻墙，从聚缘阁开始！
- 【公告】聚缘阁代理安卓版有新版本了2017/2/17
+本站新域名:https://git.io/jyg33
 
-[官方下载](https://github.com/juyuange/jygtv6/raw/master/j.apk)|[备份下载](https://jdao.g888.eu.org/xiazai/jyg217.apk)
+### [聚缘阁代理安卓j325增强翻墙版隆重推出](https://gitlab.com/juyuange/2/-/raw/master/j3025.apk)2021/3/25
 
-**发现有效网址，请收藏备用或者推广给需要的朋友使用。**
-*** 
+### [聚缘阁代理电脑j325增强翻墙版隆重推出](https://gitlab.com/juyuange/2/-/raw/master/j325dn.rar)2021/3/25
+
+
+***
+
+一键点击 轻松翻墙
+
+
+### [聚缘阁禁闻导航](http://558.fww4e.tk/2)
+
+### [动态网加密入口](http://344.gaher.ml/2/778/u3334g)
+
+### [新唐人高速入口](http://344.gaher.ml/2/776/u5g)
+
+### [大纪元高速入口](http://344.gaher.ml/2/556/u7g)
+
+### [明慧网高速入口](http://344.gaher.ml/2/667/e3u)
+
+### [退党网高速入口](http://344.gaher.ml/2/886/e8u)
+
+### [禁闻网高速入口](http://344.gaher.ml/2/557/e16u)
+
+***
+
+
+### [自由门软件下载](https://git.io/skyfree)
+
+### [V2ray机场翻墙](https://github.com/bannedbook/fanqiang/wiki/V2ray%E6%9C%BA%E5%9C%BA)
+
+### [24小时实事禁闻](https://github.com/fyvn2199/djy/blob/master/gb/n24hr.md?dfh#1)
+
+### [大纪元实事新闻](https://github.com/fyvn2199/djy/blob/master/gb/nsc413.md?dfh#1)
+
+### [禁闻网实事新闻](https://github.com/fqnews/bnews)
+
+### [禁书在线阅读](https://github.com/txyzum203/djy/blob/master/gb/9p.md?flntdtv#1)
+
+### [电脑翻墙软件](https://github.com/Alvin9999/new-pac/wiki)
+
+### [安卓翻墙软件](https://git.io/afq)
+
+### [全球禁闻聚合](https://github.com/gfw-breaker/banned-news1/blob/master/README.md)
+
+
+
+
+
+
+
+
+
 
 
 
