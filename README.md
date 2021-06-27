@@ -6,7 +6,7 @@
 
 本站新域名:https://git.io/jyg33
 
-### [聚缘阁代理安卓j325增强翻墙版隆重推出](https://gitlab.com/juyuange/2/-/raw/master/j3025.apk)2021/3/25
+### [聚缘阁代理安卓j603增强翻墙版隆重推出](https://gitlab.com/juyuange/2/-/raw/master/j603.apk)2021/6/27
 
 ### [聚缘阁代理电脑j325增强翻墙版隆重推出](https://gitlab.com/juyuange/2/-/raw/master/j325dn.rar)2021/3/25
 
