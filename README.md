@@ -15,19 +15,19 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](https://pczu6.ml//dh1)
+### [聚缘阁禁闻导航](https://pczu6.ml/dh1)
 
-### [动态网加密入口](https://pczu6.ml//2/ggr4/u3334g)
+### [动态网加密入口](https://pczu6.ml/2/ggr4/u3334g)
 
-### [新唐人高速入口](https://pczu6.ml//2/bbfr/u5g)
+### [新唐人高速入口](https://pczu6.ml/2/bbfr/u5g)
 
-### [大纪元高速入口](https://pczu6.ml//2/ffee/u7g)
+### [大纪元高速入口](https://pczu6.ml/2/ffee/u7g)
 
-### [明慧网高速入口](https://pczu6.ml//2/nnnt4/e3t)
+### [明慧网高速入口](https://pczu6.ml/2/nnnt4/e3t)
 
-### [退党网高速入口](https://pczu6.ml//2/ttre/e8u)
+### [退党网高速入口](https://pczu6.ml/2/ttre/e8u)
 
-### [禁闻网高速入口](https://pczu6.ml//2/nngr/e16u)
+### [禁闻网高速入口](https://pczu6.ml/2/nngr/e16u)
 
 ***
 
