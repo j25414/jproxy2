@@ -4,7 +4,7 @@
 
 **电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的。**
 
-本站新域名:https://git.io/jyg33
+本站推广，登录网站:https://git.io/jyg88
 
 ### [聚缘阁代理安卓j603增强翻墙版隆重推出](https://gitlab.com/juyuange/2/-/raw/master/j603.apk)2021/6/27
 
