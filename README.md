@@ -23,7 +23,7 @@
 
 ### [大纪元高速入口](http://pczu6.ml/jyg88/ffee/u7g)
 
-### [明慧网高速入口](http://pczu6.ml/jyg88/nnnt4/e3t)
+### [明慧网高速入口](http://pczu6.ml/jyg88/nnnu/e3t)
 
 ### [退党网高速入口](http://pczu6.ml/jyg88/ttre/e8u)
 
