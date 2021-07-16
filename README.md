@@ -15,19 +15,22 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](http://pczu6.ml/dh1)
+### [聚缘阁视频网](https://2t.letz.dev/tv)
 
-### [动态网加密入口](http://t66.juya.xyz/jyg88/ggr4/u3334g)
+### [聚缘阁禁闻导航](https://2t.letz.dev/dh1)
 
-### [新唐人高速入口](http://t66.juya.xyz/jyg88/bbfr/u5g)
+### [动态网加密入口](https://2t.letz.dev/2/xxx/c3334g)
 
-### [大纪元高速入口](http://t66.juya.xyz/jyg88/ffee/u7g)
+### [新唐人高速入口](https://2t.letz.dev/2/xxx/u5x)
 
-### [明慧网高速入口](http://t66.juya.xyz/jyg88/nnnu/e3t)
+### [大纪元高速入口](https://2t.letz.dev/2/xxx/x7g)
 
-### [退党网高速入口](http://t66.juya.xyz/jyg88/ttre/e8u)
+### [明慧网高速入口](https://2t.letz.dev/2/xxx/e3x)
 
-### [禁闻网高速入口](http://t66.juya.xyz/jyg88/nngr/e16u)
+### [退党网高速入口](https://2t.letz.dev/2/xxx/e8x)
+
+### [禁闻网高速入口](https://2t.letz.dev/2/xxx/e16x)
+
 
 ***
 
