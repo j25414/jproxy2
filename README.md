@@ -15,21 +15,21 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网](http://2tttt.lccc.lockemyit.com/tv)
+### [聚缘阁视频网](http://255t.lccc.lockemyit.com/tv)
 
-### [聚缘阁禁闻导航](http://27776t.lccc.lockemyit.com/dh1)
+### [聚缘阁禁闻导航](http://27yyt.lccc.lockemyit.com/dh1)
 
-### [动态网加密入口](http://285t.lccc.lockemyit.com/2/xxx/c3334g)
+### [动态网加密入口](http://244t.lccc.lockemyit.com/2/xxx/c3334g)
 
-### [新唐人高速入口](http://2t445.lccc.lockemyit.com/2/xxx/u5x)
+### [新唐人高速入口](http://2th.lccc.lockemyit.com/2/xxx/u5x)
 
-### [大纪元高速入口](http://2t223.lccc.lockemyit.com/2/xxx/x7g)
+### [大纪元高速入口](http://2t22.lccc.lockemyit.com/2/xxx/x7g)
 
-### [明慧网高速入口](http://2567t.lccc.lockemyit.com/2/xxx/e3x)
+### [明慧网高速入口](http://2bb.lccc.lockemyit.com/2/xxx/e3x)
 
-### [退党网高速入口](http://2ju8t.lccc.lockemyit.com/2/xxx/e8x)
+### [退党网高速入口](http://211t.lccc.lockemyit.com/2/xxx/e8x)
 
-### [禁闻网高速入口](http://2568t.lccc.lockemyit.com/2/xxx/e16x)
+### [禁闻网高速入口](http://27u.lccc.lockemyit.com/2/xxx/e16x)
 
 
 ***
