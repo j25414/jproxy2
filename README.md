@@ -15,21 +15,21 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网](https://tz.f32.workers.dev/tv)
+### [聚缘阁视频网](http://tz.atz.arksider.tw/tv)
 
-### [聚缘阁禁闻导航](https://tz.f32.workers.dev/dh1)
+### [聚缘阁禁闻导航](http://tz.atz.arksider.tw/dh1)
 
-### [动态网加密入口](https://tz.f32.workers.dev/2/xxx/c3334g)
+### [动态网加密入口](http://tz.atz.arksider.tw/2/xxx/c3334g)
 
-### [新唐人高速入口](https://tz.f32.workers.dev/2/xxx/u5x)
+### [新唐人高速入口](http://tz.atz.arksider.tw/2/xxx/u5x)
 
-### [大纪元高速入口](https://tz.f32.workers.dev/2/xxx/x7g)
+### [大纪元高速入口](http://tz.atz.arksider.tw/2/xxx/x7g)
 
-### [明慧网高速入口](https://tz.f32.workers.dev/2/xxx/e3x)
+### [明慧网高速入口](http://tz.atz.arksider.tw/2/xxx/e3x)
 
-### [退党网高速入口](https://tz.f32.workers.dev/2/xxx/e8x)
+### [退党网高速入口](http://tz.atz.arksider.tw/2/xxx/e8x)
 
-### [禁闻网高速入口](https://tz.f32.workers.dev/2/xxx/e16x)
+### [禁闻网高速入口](http://tz.atz.arksider.tw/2/xxx/e16x)
 
 
 ***
