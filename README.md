@@ -15,21 +15,21 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网](http://tz.atz.arksider.tw/tv)
+### [聚缘阁视频网](http://tzfd.b88.bwhite.me/tv)
 
-### [聚缘阁禁闻导航](http://tz.atz.arksider.tw/dh1)
+### [聚缘阁禁闻导航](http://tzpp.b88.bwhite.me/dh1)
 
-### [动态网加密入口](http://tz.atz.arksider.tw/2/xxx/c3334g)
+### [动态网加密入口](http://tz9.b88.bwhite.me/2/xxx/c3334g)
 
-### [新唐人高速入口](http://tz.atz.arksider.tw/2/xxx/u5x)
+### [新唐人高速入口](http://9tz.b88.bwhite.me/2/xxx/u5x)
 
-### [大纪元高速入口](http://tz.atz.arksider.tw/2/xxx/x7g)
+### [大纪元高速入口](http://t2z.b88.bwhite.me/2/xxx/x7g)
 
-### [明慧网高速入口](http://tz.atz.arksider.tw/2/xxx/e3x)
+### [明慧网高速入口](http://t3z.b88.bwhite.me/2/xxx/e3x)
 
-### [退党网高速入口](http://tz.atz.arksider.tw/2/xxx/e8x)
+### [退党网高速入口](http://6tz.b88.bwhite.me/2/xxx/e8x)
 
-### [禁闻网高速入口](http://tz.atz.arksider.tw/2/xxx/e16x)
+### [禁闻网高速入口](http://tyz.b88.bwhite.me/2/xxx/e16x)
 
 
 ***
