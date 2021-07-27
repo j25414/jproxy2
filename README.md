@@ -15,21 +15,21 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网](http://trr.b88.bwhite.me/tv)
+### [聚缘阁视频网](http://trr.a88u.autoelevadorrental.com.ar/tv)
 
-### [聚缘阁禁闻导航](http://t33p.b88.bwhite.me/dh1)
+### [聚缘阁禁闻导航](http://t33p.a88u.autoelevadorrental.com.ar/dh1)
 
-### [动态网加密入口](http://tnn.b88.bwhite.me/2/xxx/c3334g)
+### [动态网加密入口](http://tnn.a88u.autoelevadorrental.com.ar/2/xxx/c3334g)
 
-### [新唐人高速入口](http://ee3.b88.bwhite.me/2/xxx/u5x)
+### [新唐人高速入口](http://ee3.a88u.autoelevadorrental.com.ar/2/xxx/u5x)
 
-### [大纪元高速入口](http://4442.b88.bwhite.me/2/xxx/x7g)
+### [大纪元高速入口](http://4442.a88u.autoelevadorrental.com.ar/2/xxx/x7g)
 
-### [明慧网高速入口](http://ggwz.b88.bwhite.me/2/xxx/e3x)
+### [明慧网高速入口](http://ggwz.a88u.autoelevadorrental.com.ar/2/xxx/e3x)
 
-### [退党网高速入口](http://6ww.b88.bwhite.me/2/xxx/e8x)
+### [退党网高速入口](http://6ww.a88u.autoelevadorrental.com.ar/2/xxx/e8x)
 
-### [禁闻网高速入口](http://t1112.b88.bwhite.me/2/xxx/e16x)
+### [禁闻网高速入口](http://t1112.a88u.autoelevadorrental.com.ar/2/xxx/e16x)
 
 
 ***
