@@ -15,21 +15,24 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网](http://trr.a88u.autoelevadorrental.com.ar/tv)
+### [聚缘阁视频网](http://t7a7.ftz.fikriala.com/tv)
 
-### [聚缘阁禁闻导航](http://t33p.a88u.autoelevadorrental.com.ar/dh1)
 
-### [动态网加密入口](http://tnn.a88u.autoelevadorrental.com.ar/2/xxx/c3334g)
+### [聚缘阁禁闻导航](http://st7a7.ftz.fikriala.com/dh1)
 
-### [新唐人高速入口](http://ee3.a88u.autoelevadorrental.com.ar/2/xxx/u5x)
 
-### [大纪元高速入口](http://4442.a88u.autoelevadorrental.com.ar/2/xxx/x7g)
+### [动态网加密入口](http://w7b7.ftz.fikriala.com/a2/zzz/f444t)
 
-### [明慧网高速入口](http://ggwz.a88u.autoelevadorrental.com.ar/2/xxx/e3x)
+### [新唐人高速入口](http://t5b5.ftz.fikriala.com/a2/zzz/f5t)
 
-### [退党网高速入口](http://6ww.a88u.autoelevadorrental.com.ar/2/xxx/e8x)
+### [大纪元高速入口](http://te76.ftz.fikriala.com/a2/zzz/f7t)
 
-### [禁闻网高速入口](http://t1112.a88u.autoelevadorrental.com.ar/2/xxx/e16x)
+### [明慧网高速入口](http://t47e7.ftz.fikriala.com/a2/zzz/f3t)
+
+### [退党网高速入口](http://t2syy.ftz.fikriala.com/a2/zzz/f8t)
+
+### [禁闻网高速入口](http://t93355.ftz.fikriala.com/a2/zzz/e16f)
+
 
 
 ***
