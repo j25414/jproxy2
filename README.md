@@ -15,23 +15,23 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网](http://t7a7.kt99.kreditmurah.com/tv)
+### [聚缘阁视频网](http://bb7.kt99.kreditmurah.com/tv)
 
 
-### [聚缘阁禁闻导航](http://st7a7.kt99.kreditmurah.com/dh1)
+### [聚缘阁禁闻导航](http://sww7.kt99.kreditmurah.com/dh1)
 
 
-### [动态网加密入口](http://w7b7.kt99.kreditmurah.com/a2/zzz/f444t)
+### [动态网加密入口](http://wvww3.kt99.kreditmurah.com/a62/zzz/f444t)
 
-### [新唐人高速入口](http://t5b5.kt99.kreditmurah.com/a2/zzz/f5t)
+### [新唐人高速入口](http://ssse.kt99.kreditmurah.com/a62/zzz/f5t)
 
-### [大纪元高速入口](http://te76.kt99.kreditmurah.com/a2/zzz/f7t)
+### [大纪元高速入口](http://tbbb.kt99.kreditmurah.com/a62/zzz/f7t)
 
-### [明慧网高速入口](http://t47e7.kt99.kreditmurah.com/a2/zzz/f3t)
+### [明慧网高速入口](http://t4444.kt99.kreditmurah.com/a62/zzz/f3t)
 
-### [退党网高速入口](http://t2syy.kt99.kreditmurah.com/a2/zzz/f8t)
+### [退党网高速入口](http://twww.kt99.kreditmurah.com/a62/zzz/f8t)
 
-### [禁闻网高速入口](http://t93355.kt99.kreditmurah.com/a2/zzz/e16f)
+### [禁闻网高速入口](http://t333.kt99.kreditmurah.com/a62/zzz/e16f)
 
 
 
