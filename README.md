@@ -15,10 +15,10 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网](http://bb7.kt99.kreditmurah.com/tv)
+### [聚缘阁视频网](http://bb7.kt99.kreditmurah.com/v1)
 
 
-### [聚缘阁禁闻导航](http://sww7.kt99.kreditmurah.com/dh1)
+### [聚缘阁禁闻导航](http://sww7.kt99.kreditmurah.com/h1)
 
 
 ### [动态网加密入口](http://r1.rundata.info/3/zzz/f444t)
