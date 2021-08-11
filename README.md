@@ -15,21 +15,17 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网](http://br1.attt34.ai4ph.ca/tv)
+### [动态网加密入口](http://sj3.samace.ca/hao/e555f)
 
-### [聚缘阁禁闻导航](http://ba1.attt34.ai4ph.ca/h1)
+### [新唐人高速入口](http://sj3.samace.ca/hao/e5f)
 
-### [动态网加密入口](http://bw1.attt34.ai4ph.ca/a62/hao/e555f)
+### [大纪元高速入口](http://sj3.samace.ca/yyy/f7t)
 
-### [新唐人高速入口](http://be1.attt34.ai4ph.ca/a62/hao/e5f)
+### [明慧网高速入口](http://sj3.samace.ca/ooo/f3t)
 
-### [大纪元高速入口](http://b331.attt34.ai4ph.ca/a62/yyy/f7t)
+### [退党网高速入口](http://sj3.samace.ca/uuu/f8t)
 
-### [明慧网高速入口](http://bee21.attt34.ai4ph.ca/a62/ooo/f3t)
-
-### [退党网高速入口](http://b1eee.attt34.ai4ph.ca/a62/uuu/f8t)
-
-### [禁闻网高速入口](http://bnnn1.attt34.ai4ph.ca/a62/ppp/e16f)
+### [禁闻网高速入口](http://sj3.samace.ca/ppp/e16f)
 
 
 
