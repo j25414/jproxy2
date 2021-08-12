@@ -15,17 +15,17 @@
 
 一键点击 轻松翻墙
 
-### [动态网加密入口](http://sj3.samace.ca/hao/e555f)
+### [动态网加密入口](http://33b.bwhite.me/hvv/e555f)
 
-### [新唐人高速入口](http://sj3.samace.ca/hao/e5f)
+### [新唐人高速入口](http://33b.bwhite.me/hyy/e5f)
 
-### [大纪元高速入口](http://sj3.samace.ca/yyy/f7t)
+### [大纪元高速入口](http://33b.bwhite.me/yoo/f7t)
 
-### [明慧网高速入口](http://sj3.samace.ca/ooo/f3t)
+### [明慧网高速入口](http://33b.bwhite.me/obb/f3t)
 
-### [退党网高速入口](http://sj3.samace.ca/uuu/f8t)
+### [退党网高速入口](http://33b.bwhite.me/urru/f8t)
 
-### [禁闻网高速入口](http://sj3.samace.ca/ppp/e16f)
+### [禁闻网高速入口](http://33b.bwhite.me/poo/e16f)
 
 
 
