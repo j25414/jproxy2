@@ -14,17 +14,18 @@
 ***
 
 一键点击 轻松翻墙
-### [动态网加密入口](https://royal-resonance-2bc4.fei99.workers.dev/hvv/e555f)
 
-### [新唐人高速入口](https://royal-resonance-2bc4.fei99.workers.dev/addy/e5f)
+### [动态网加密入口](https://spring-smoke-b49b.254oij.workers.dev/hvv/e555f)
 
-### [大纪元高速入口](https://royal-resonance-2bc4.fei99.workers.dev/ydo/f7t)
+### [新唐人高速入口](https://spring-smoke-b49b.254oij.workers.dev/hyy/e5f)
 
-### [明慧网高速入口](https://royal-resonance-2bc4.fei99.workers.dev/odbb/f3t)
+### [大纪元高速入口](https://spring-smoke-b49b.254oij.workers.dev/yoo/f7t)
 
-### [退党网高速入口](https://royal-resonance-2bc4.fei99.workers.dev/udrru/f8t)
+### [明慧网高速入口](https://spring-smoke-b49b.254oij.workers.dev/obb/f3t)
 
-### [禁闻网高速入口](https://royal-resonance-2bc4.fei99.workers.dev/podo/e16f)
+### [退党网高速入口](https://spring-smoke-b49b.254oij.workers.dev/urru/f8t)
+
+### [禁闻网高速入口](https://spring-smoke-b49b.254oij.workers.dev/poo/e16f)
 ***
 
 
