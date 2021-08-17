@@ -15,17 +15,17 @@
 
 一键点击 轻松翻墙
 
-### [动态网加密入口](https://bold-band-51d9.gew3.workers.dev/hooo/y555f)
+### [动态网加密入口](https://jyg88.254oij.workers.dev/hooo/y555f)
 
-### [新唐人高速入口](https://bold-band-51d9.gew3.workers.dev/ttyy/y5f)
+### [新唐人高速入口](https://jyg88.254oij.workers.dev/ttyy/y5f)
 
-### [大纪元高速入口](https://bold-band-51d9.gew3.workers.dev/mmyyy/y7t)
+### [大纪元高速入口](https://jyg88.254oij.workers.dev/mmyyy/y7t)
 
-### [明慧网高速入口](https://bold-band-51d9.gew3.workers.dev/vvvv/y3t)
+### [明慧网高速入口](https://jyg88.254oij.workers.dev//vvvv/y3t)
 
-### [退党网高速入口](https://bold-band-51d9.gew3.workers.dev/kkku/y8t)
+### [退党网高速入口](https://jyg88.254oij.workers.dev/kkku/y8t)
 
-### [禁闻网高速入口](https://bold-band-51d9.gew3.workers.dev/rrre/y16f)
+### [禁闻网高速入口](https://jyg88.254oij.workers.dev/rrre/y16f)
 
 ***
 
