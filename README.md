@@ -15,17 +15,17 @@
 
 一键点击 轻松翻墙
 
-### [动态网加密入口](http://bbv.brightpearlhk.org/hooo/y555f)
+### [动态网加密入口](https://813.4343f.workers.dev/htto/y555f)
 
-### [新唐人高速入口](http://bbv.brightpearlhk.org/ttyy/y5f)
+### [新唐人高速入口](https://813.4343f.workers.dev/tty/y5f)
 
-### [大纪元高速入口](http://bbv.brightpearlhk.org/mmyyy/y7t)
+### [大纪元高速入口](https://813.4343f.workers.dev/mtyy/y7t)
 
-### [明慧网高速入口](http://bbv.brightpearlhk.org/vvvv/y3t)
+### [明慧网高速入口](https://813.4343f.workers.dev/ttv/y3t)
 
-### [退党网高速入口](http://bbv.brightpearlhk.org/kkku/y8t)
+### [退党网高速入口](https://813.4343f.workers.dev/ttu/y8t)
 
-### [禁闻网高速入口](http://bbv.brightpearlhk.org/rrre/y16f)
+### [禁闻网高速入口](https://813.4343f.workers.dev/tte/y16f)
 
 ***
 
