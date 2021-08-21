@@ -15,17 +15,17 @@
 
 一键点击 轻松翻墙
 
-### [动态网加密入口](https://88ja.wewlpj.workers.dev/htto/y555f)
+### [动态网加密入口](http://ey.estudioloop.com.br/bbo/y585j)
 
-### [新唐人高速入口](https://88ja.wewlpj.workers.dev/tty/y5f)
+### [新唐人高速入口](http://ey.estudioloop.com.br/tbb/t5f)
 
-### [大纪元高速入口](https://88ja.wewlpj.workers.dev/mtyy/y7t)
+### [大纪元高速入口](http://ey.estudioloop.com.br/tbbf/j7t)
 
-### [明慧网高速入口](https://88ja.wewlpj.workers.dev/ttv/y3t)
+### [明慧网高速入口](http://ey.estudioloop.com.br/tyy/y3t)
 
-### [退党网高速入口](https://88ja.wewlpj.workers.dev/ttu/y8t)
+### [退党网高速入口](http://ey.estudioloop.com.br/tii/y8t)
 
-### [禁闻网高速入口](https://88ja.wewlpj.workers.dev/tte/y16f)
+### [禁闻网高速入口](http://ey.estudioloop.com.br/mmk/u16f)
 
 ***
 
