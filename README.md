@@ -15,17 +15,17 @@
 
 一键点击 轻松翻墙
 
-### [动态网加密入口](https://curly-cherry-994f.gaew3.workers.dev/bbo/y585j)
+### [动态网加密入口](https://patient-bird-97c8.dawew3.workers.dev/aaae/y555f)
 
-### [新唐人高速入口](https://curly-cherry-994f.gaew3.workers.dev/tbb/t5f)
+### [新唐人高速入口](https://patient-bird-97c8.dawew3.workers.dev/ttcc/y5f)
 
-### [大纪元高速入口](https://curly-cherry-994f.gaew3.workers.dev/tbbf/j7t)
+### [大纪元高速入口](https://patient-bird-97c8.dawew3.workers.dev/mttt/y7t)
 
-### [明慧网高速入口](https://curly-cherry-994f.gaew3.workers.dev/tyy/y3t)
+### [明慧网高速入口](https://patient-bird-97c8.dawew3.workers.dev/ttbb/y3t)
 
-### [退党网高速入口](https://curly-cherry-994f.gaew3.workers.dev/tii/y8t)
+### [退党网高速入口](https://patient-bird-97c8.dawew3.workers.dev/ttuyy/y8t)
 
-### [禁闻网高速入口](https://curly-cherry-994f.gaew3.workers.dev/mmk/u16f)
+### [禁闻网高速入口](https://patient-bird-97c8.dawew3.workers.dev/ttkk/y16f)
 
 ***
 
