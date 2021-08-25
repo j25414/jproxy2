@@ -16,17 +16,17 @@
 一键点击 轻松翻墙
 
 
-### [动态网加密入口](https://purple-pond-c10c.reeww.workers.dev/aa5ae/y555f)
+### [动态网加密入口](https://twilight-dawn-44c1.dawew3.workers.dev/aa5ae/y555f)
 
-### [新唐人高速入口](https://purple-pond-c10c.reeww.workers.dev/t5tcc/y5f)
+### [新唐人高速入口](https://twilight-dawn-44c1.dawew3.workers.dev/t5tcc/y5f)
 
-### [大纪元高速入口](https://purple-pond-c10c.reeww.workers.dev/mt5tt/y7t)
+### [大纪元高速入口](https://twilight-dawn-44c1.dawew3.workers.dev/mt5tt/y7t)
 
-### [明慧网高速入口](https://purple-pond-c10c.reeww.workers.dev/tt5bb/y3t)
+### [明慧网高速入口](https://twilight-dawn-44c1.dawew3.workers.dev/tt5bb/y3t)
 
-### [退党网高速入口](https://purple-pond-c10c.reeww.workers.dev/tt5uyy/y8t)
+### [退党网高速入口](https://twilight-dawn-44c1.dawew3.workers.dev/tt5uyy/y8t)
 
-### [禁闻网高速入口](https://purple-pond-c10c.reeww.workers.dev/tt5kk/y16f)
+### [禁闻网高速入口](https://twilight-dawn-44c1.dawew3.workers.dev/tt5kk/y16f)
 
 ***
 
