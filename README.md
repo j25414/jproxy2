@@ -16,17 +16,17 @@
 一键点击 轻松翻墙
 
 
-### [动态网加密入口](https://still-meadow-87e5.eww3.workers.dev/aa5c/y555f)
+### [动态网加密入口](https://547.eww3.workers.dev/aa5c/y555f)
 
-### [新唐人高速入口](https://still-meadow-87e5.eww3.workers.dev/sscc/y5f)
+### [新唐人高速入口](https://547.eww3.workers.dev/sscc/y5f)
 
-### [大纪元高速入口](https://still-meadow-87e5.eww3.workers.dev/5tss/y7t)
+### [大纪元高速入口](https://547.eww3.workers.dev/5tss/y7t)
 
-### [明慧网高速入口](https://still-meadow-87e5.eww3.workers.dev/t5ssb/y3t)
+### [明慧网高速入口](https://547.eww3.workers.dev/t5ssb/y3t)
 
-### [退党网高速入口](https://still-meadow-87e5.eww3.workers.dev/5yssy/y8t)
+### [退党网高速入口](https://547.eww3.workers.dev/5yssy/y8t)
 
-### [禁闻网高速入口](https://still-meadow-87e5.eww3.workers.dev/t5kss/y16f)
+### [禁闻网高速入口](https://547.eww3.workers.dev/t5kss/y16f)
 
 ***
 
