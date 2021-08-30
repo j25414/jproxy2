@@ -16,17 +16,17 @@
 一键点击 轻松翻墙
 
 
-### [动态网加密入口](https://purple-thunder-dc1f.a225.workers.dev/aa5ae/y555f)
+### [动态网加密入口](https://royal-rain-7a28.dawew3.workers.dev/atyyc/y555f)
 
-### [新唐人高速入口](https://purple-thunder-dc1f.a225.workers.dev/t5tcc/y5f)
+### [新唐人高速入口](https://royal-rain-7a28.dawew3.workers.dev/sttt/y5f)
 
-### [大纪元高速入口](https://purple-thunder-dc1f.a225.workers.dev/mt5tt/y7t)
+### [大纪元高速入口](https://royal-rain-7a28.dawew3.workers.dev/yyytt/y7t)
 
-### [明慧网高速入口](https://purple-thunder-dc1f.a225.workers.dev/tt5bb/y3t)
+### [明慧网高速入口](https://royal-rain-7a28.dawew3.workers.dev/tycc/y3t)
 
-### [退党网高速入口](https://purple-thunder-dc1f.a225.workers.dev/tt5uyy/y8t)
+### [退党网高速入口](https://royal-rain-7a28.dawew3.workers.dev/bbbsrry/y8t)
 
-### [禁闻网高速入口](https://purple-thunder-dc1f.a225.workers.dev/tt5kk/y16f)
+### [禁闻网高速入口](https://royal-rain-7a28.dawew3.workers.dev/tbbbh/y16f)
 
 
 
