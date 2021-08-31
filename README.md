@@ -15,17 +15,18 @@
 
 一键点击 轻松翻墙
 
-### [动态网加密入口](https://rough-thunder-0a43.qarfew.workers.dev/atyyc/y555f)
 
-### [新唐人高速入口](https://rough-thunder-0a43.qarfew.workers.dev/sttt/y5f)
+### [动态网加密入口](https://divine-credit-af67.tou138926.workers.dev/atyyc/y555f)
 
-### [大纪元高速入口](https://rough-thunder-0a43.qarfew.workers.dev/yyytt/y7t)
+### [新唐人高速入口](https://divine-credit-af67.tou138926.workers.dev/sttt/y5f)
 
-### [明慧网高速入口](https://rough-thunder-0a43.qarfew.workers.dev/tycc/y3t)
+### [大纪元高速入口](https://divine-credit-af67.tou138926.workers.dev/yyytt/y7t)
 
-### [退党网高速入口](https://rough-thunder-0a43.qarfew.workers.dev/bbbsrry/y8t)
+### [明慧网高速入口](https://divine-credit-af67.tou138926.workers.dev/tycc/y3t)
 
-### [禁闻网高速入口](https://rough-thunder-0a43.qarfew.workers.dev/tbbbh/y16f)
+### [退党网高速入口](https://divine-credit-af67.tou138926.workers.dev/bbbsrry/y8t)
+
+### [禁闻网高速入口](https://divine-credit-af67.tou138926.workers.dev/tbbbh/y16f)
 
 
 
