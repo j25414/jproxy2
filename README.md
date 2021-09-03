@@ -16,17 +16,17 @@
 一键点击 轻松翻墙
 
 
-### [动态网加密入口](https://88t.reeww.workers.dev/auuc/y555f)
+### [动态网加密入口](https://88u.reeww.workers.dev/thh/j555f)
 
-### [新唐人高速入口](https://88t.reeww.workers.dev/uuft/y5f)
+### [新唐人高速入口](https://88u.reeww.workers.dev/uaat/j5f)
 
-### [大纪元高速入口](https://88t.reeww.workers.dev/ccct/y7t)
+### [大纪元高速入口](https://88u.reeww.workers.dev/ccaa/y7j)
 
-### [明慧网高速入口](https://88t.reeww.workers.dev/twww/y3t)
+### [明慧网高速入口](https://88u.reeww.workers.dev/taa/y3j)
 
-### [退党网高速入口](https://88t.reeww.workers.dev/bbeery/y8t)
+### [退党网高速入口](https://88u.reeww.workers.dev/baaery/j8t)
 
-### [禁闻网高速入口](https://88t.reeww.workers.dev/tnnn/y16f)
+### [禁闻网高速入口](https://88u.reeww.workers.dev/tccc/y16j)
 
 
 
