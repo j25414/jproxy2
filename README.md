@@ -16,17 +16,17 @@
 一键点击 轻松翻墙
 
 
-### [动态网加密入口](https://blue-pine-9bed.tou138926.workers.dev/auuc/y555f)
+### [动态网加密入口](https://rapid-scene-4a50.lian.workers.dev/auuc/y555f)
 
-### [新唐人高速入口](https://blue-pine-9bed.tou138926.workers.dev/uuft/y5f)
+### [新唐人高速入口](https://rapid-scene-4a50.lian.workers.dev/uuft/y5f)
 
-### [大纪元高速入口](https://blue-pine-9bed.tou138926.workers.dev/ccct/y7t)
+### [大纪元高速入口](https://rapid-scene-4a50.lian.workers.dev/ccct/y7t)
 
-### [明慧网高速入口](https://blue-pine-9bed.tou138926.workers.dev/twww/y3t)
+### [明慧网高速入口](https://rapid-scene-4a50.lian.workers.dev/twww/y3t)
 
-### [退党网高速入口](https://blue-pine-9bed.tou138926.workers.dev/bbeery/y8t)
+### [退党网高速入口](https://rapid-scene-4a50.lian.workers.dev/bbeery/y8t)
 
-### [禁闻网高速入口](https://blue-pine-9bed.tou138926.workers.dev/tnnn/y16f)
+### [禁闻网高速入口](https://rapid-scene-4a50.lian.workers.dev/tnnn/y16f)
 
 
 
