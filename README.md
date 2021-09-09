@@ -16,17 +16,17 @@
 一键点击 轻松翻墙
 
 
-### [动态网加密入口](https://steep-frog-0961.f32.workers.dev/auuc/y555f)
+### [动态网加密入口](https://royal-surf-de6b.gasr.workers.dev/abbc/y555f)
 
-### [新唐人高速入口](https://steep-frog-0961.f32.workers.dev/uuft/y5f)
+### [新唐人高速入口](https://royal-surf-de6b.gasr.workers.dev/ccft/y5f)
 
-### [大纪元高速入口](https://steep-frog-0961.f32.workers.dev/ccct/y7t)
+### [大纪元高速入口](https://royal-surf-de6b.gasr.workers.dev/cyy/y7t)
 
-### [明慧网高速入口](https://steep-frog-0961.f32.workers.dev/twww/y3t)
+### [明慧网高速入口](https://royal-surf-de6b.gasr.workers.dev/tyy/y3t)
 
-### [退党网高速入口](https://steep-frog-0961.f32.workers.dev/bbeery/y8t)
+### [退党网高速入口](https://royal-surf-de6b.gasr.workers.dev/bbyyry/y8t)
 
-### [禁闻网高速入口](https://steep-frog-0961.f32.workers.dev/tnnn/y16f)
+### [禁闻网高速入口](https://royal-surf-de6b.gasr.workers.dev/tyyy/y16f)
 
 
 
