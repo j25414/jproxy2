@@ -16,17 +16,17 @@
 一键点击 轻松翻墙
 
 
-### [动态网加密入口](https://blue-sea-248c.reeww.workers.devavv/y555f)
+### [动态网加密入口](https://blue-sea-248c.reeww.workers.dev/avv/y555f)
 
-### [新唐人高速入口](https://blue-sea-248c.reeww.workers.devuff/y5f)
+### [新唐人高速入口](https://blue-sea-248c.reeww.workers.dev/uff/y5f)
 
-### [大纪元高速入口](https://blue-sea-248c.reeww.workers.devcctt/y7t)
+### [大纪元高速入口](https://blue-sea-248c.reeww.workers.dev/cctt/y7t)
 
-### [明慧网高速入口](https://blue-sea-248c.reeww.workers.devtwuuu/y3t)
+### [明慧网高速入口](https://blue-sea-248c.reeww.workers.dev/twuuu/y3t)
 
-### [退党网高速入口](https://blue-sea-248c.reeww.workers.devbmmmy/y8t)
+### [退党网高速入口](https://blue-sea-248c.reeww.workers.dev/bmmmy/y8t)
 
-### [禁闻网高速入口](https://blue-sea-248c.reeww.workers.devtn6/y16f)
+### [禁闻网高速入口](https://blue-sea-248c.reeww.workers.dev/tn6/y16f)
 
 
 
