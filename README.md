@@ -16,6 +16,8 @@
 一键点击 轻松翻墙
 
 
+### [聚缘阁视频网站](https://lively-smoke-4e79.gaew3.workers.dev/ahhc/y555f)
+
 ### [动态网加密入口](https://tiny-bonus-57ab.gaew3.workers.dev/ahhc/y555f)
 
 ### [新唐人高速入口](https://tiny-bonus-57ab.gaew3.workers.dev/chht/y5f)
