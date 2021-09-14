@@ -16,17 +16,17 @@
 一键点击 轻松翻墙
 
 
-### [动态网加密入口](https://frosty-mode-bc6c.254oij.workers.dev/avv/y555f)
+### [动态网加密入口](https://raspy-wave-a139.2324.workers.dev/avsv/y555f)
 
-### [新唐人高速入口](https://frosty-mode-bc6c.254oij.workers.dev/uff/y5f)
+### [新唐人高速入口](https://raspy-wave-a139.2324.workers.dev/ufdf/y5f)
 
-### [大纪元高速入口](https://frosty-mode-bc6c.254oij.workers.dev/cctt/y7t)
+### [大纪元高速入口](https://raspy-wave-a139.2324.workers.dev/ccdtt/y7t)
 
-### [明慧网高速入口](https://frosty-mode-bc6c.254oij.workers.dev/twuuu/y3t)
+### [明慧网高速入口](https://raspy-wave-a139.2324.workers.dev/twccu/y3t)
 
-### [退党网高速入口](https://frosty-mode-bc6c.254oij.workers.dev/bmmmy/y8t)
+### [退党网高速入口](https://raspy-wave-a139.2324.workers.dev/bmrry/y8t)
 
-### [禁闻网高速入口](https://frosty-mode-bc6c.254oij.workers.dev/tn6/y16f)
+### [禁闻网高速入口](https://raspy-wave-a139.2324.workers.dev/tbb/y16f)
 
 
 
