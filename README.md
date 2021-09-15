@@ -16,17 +16,17 @@
 一键点击 轻松翻墙
 
 
-### [动态网加密入口](https://gsew.fei99.workers.dev/ahjjc/y555f)
+### [动态网加密入口](https://tight-flower-4cc2.254oij.workers.dev/avsv/y555f)
 
-### [新唐人高速入口](https://gsew.fei99.workers.dev/chjj/y5f)
+### [新唐人高速入口](https://tight-flower-4cc2.254oij.workers.dev/ufdf/y5f)
 
-### [大纪元高速入口](https://gsew.fei99.workers.dev/chjj/y7t)
+### [大纪元高速入口](https://tight-flower-4cc2.254oij.workers.dev/ccdtt/y7t)
 
-### [明慧网高速入口](https://gsew.fei99.workers.dev/tyoo/y3t)
+### [明慧网高速入口](https://tight-flower-4cc2.254oij.workers.dev/twccu/y3t)
 
-### [退党网高速入口](https://gsew.fei99.workers.dev/bkkk/y8t)
+### [退党网高速入口](https://tight-flower-4cc2.254oij.workers.dev/bmrry/y8t)
 
-### [禁闻网高速入口](https://gsew.fei99.workers.dev/ccvy/y16f)
+### [禁闻网高速入口](https://tight-flower-4cc2.254oij.workers.dev/tbb/y16f)
 
 
 
