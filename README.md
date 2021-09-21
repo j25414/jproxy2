@@ -15,6 +15,10 @@
 
 一键点击 轻松翻墙
 
+### [聚缘阁视频网站](https://nameless-frog-617a.qarfew.workers.dev/)
+
+### [聚缘阁禁闻导航](https://cool-band-2473.qarfew.workers.dev/)
+
 ### [动态网加密入口](https://dry-cake-0274.lian.workers.dev/aoov/y555f)
 
 ### [新唐人高速入口](https://dry-cake-0274.lian.workers.dev/uooo/y5f)
