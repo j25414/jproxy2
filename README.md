@@ -15,17 +15,17 @@
 
 一键点击 轻松翻墙
 
-### [动态网加密入口](https://solitary-king-30a6.adga.workers.dev/ahjjc/y555f)
+### [动态网加密入口](https://66aa.gasr.workers.devaoov/y555f)
 
-### [新唐人高速入口](https://solitary-king-30a6.adga.workers.dev/chjj/y5f)
+### [新唐人高速入口](https://66aa.gasr.workers.devuooo/y5f)
 
-### [大纪元高速入口](https://solitary-king-30a6.adga.workers.dev/chjj/y7t)
+### [大纪元高速入口](https://66aa.gasr.workers.devcooo/y7t)
 
-### [明慧网高速入口](https://solitary-king-30a6.adga.workers.dev/tyoo/y3t)
+### [明慧网高速入口](https://66aa.gasr.workers.devtmmm/y3t)
 
-### [退党网高速入口](https://solitary-king-30a6.adga.workers.dev/bkkk/y8t)
+### [退党网高速入口](https://66aa.gasr.workers.devbmmm/y8t)
 
-### [禁闻网高速入口](https://solitary-king-30a6.adga.workers.dev/ccvy/y16f)
+### [禁闻网高速入口](https://66aa.gasr.workers.devtyyy/y16f)
 
 
 
