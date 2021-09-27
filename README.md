@@ -16,17 +16,17 @@
 一键点击 轻松翻墙
 
 
-### [动态网加密入口](https://hidden-frost-1fed.254oij.workers.dev/aoov/y555f)
+### [动态网加密入口](https://solitary-water-2749.lian.workers.dev/aoov/y555f)
 
-### [新唐人高速入口](https://hidden-frost-1fed.254oij.workers.dev/uooo/y5f)
+### [新唐人高速入口](https://solitary-water-2749.lian.workers.dev/uooo/y5f)
 
-### [大纪元高速入口](https://hidden-frost-1fed.254oij.workers.dev/cooo/y7t)
+### [大纪元高速入口](https://solitary-water-2749.lian.workers.dev/cooo/y7t)
 
-### [明慧网高速入口](https://hidden-frost-1fed.254oij.workers.dev/tmmm/y3t)
+### [明慧网高速入口](https://solitary-water-2749.lian.workers.dev/tmmm/y3t)
 
-### [退党网高速入口](https://hidden-frost-1fed.254oij.workers.dev/bmmm/y8t)
+### [退党网高速入口](https://solitary-water-2749.lian.workers.dev/bmmm/y8t)
 
-### [禁闻网高速入口](https://hidden-frost-1fed.254oij.workers.dev/tyyy/y16f)
+### [禁闻网高速入口](https://solitary-water-2749.lian.workers.dev/tyyy/y16f)
 
 
 
