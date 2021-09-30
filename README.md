@@ -16,17 +16,17 @@
 一键点击 轻松翻墙
 
 
-### [动态网加密入口](http://252.mk.megacupom.com/aoov/y555f)
+### [动态网加密入口](http://ftz.fandf.hr/aoov/y555f)
 
-### [新唐人高速入口](http://225.mk.megacupom.com/uooo/y5f)
+### [新唐人高速入口](http://ftz.fandf.hr/uooo/y5f)
 
-### [大纪元高速入口](http://225.mk.megacupom.com/cooo/y7t)
+### [大纪元高速入口](http://ftz.fandf.hr/cooo/y7t)
 
-### [明慧网高速入口](http://2r5.mk.megacupom.com/tmmm/y3t)
+### [明慧网高速入口](http://ftz.fandf.hr/tmmm/y3t)
 
-### [退党网高速入口](http://2r5.mk.megacupom.com/bmmm/y8t)
+### [退党网高速入口](http://ftz.fandf.hr/bmmm/y8t)
 
-### [禁闻网高速入口](http://r25.mk.megacupom.com/tyyy/y16f)
+### [禁闻网高速入口](http://ftz.fandf.hr/tyyy/y16f)
 
 
 
