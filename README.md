@@ -15,8 +15,9 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网站](http://vt.vaqueras.com/)
+### [聚缘阁禁网导航](http://vdh.vaqueras.com/)
 
+### [聚缘阁视频网站](http://vt.vaqueras.com/)
 
 ### [动态网加密入口](http://ftz.fandf.hr/aoov/y555f)
 
