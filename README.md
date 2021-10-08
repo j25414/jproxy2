@@ -17,17 +17,17 @@
 
 
 
-### [动态网加密入口](http://ftz.fandf.hr/aoov/y555f)
+### [动态网加密入口](https://solitary-glitter-1fe9.gaew3.workers.dev/aaae/y555f)
 
-### [新唐人高速入口](http://ftz.fandf.hr/uooo/y5f)
+### [新唐人高速入口](https://solitary-glitter-1fe9.gaew3.workers.dev/ttcc/y5f)
 
-### [大纪元高速入口](http://ftz.fandf.hr/cooo/y7t)
+### [大纪元高速入口](https://solitary-glitter-1fe9.gaew3.workers.dev/mttt/y7t)
 
-### [明慧网高速入口](http://ftz.fandf.hr/tmmm/y3t)
+### [明慧网高速入口](https://solitary-glitter-1fe9.gaew3.workers.dev/ttbb/y3t)
 
-### [退党网高速入口](http://ftz.fandf.hr/bmmm/y8t)
+### [退党网高速入口](https://solitary-glitter-1fe9.gaew3.workers.dev/ttuyy/y8t)
 
-### [禁闻网高速入口](http://ftz.fandf.hr/tyyy/y16f)
+### [禁闻网高速入口](https://solitary-glitter-1fe9.gaew3.workers.dev/ttkk/y16f)
 
 
 
