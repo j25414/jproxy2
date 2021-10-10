@@ -17,17 +17,17 @@
 
 
 
-### [动态网加密入口](https://royal-surf-de6b.133a.workers.dev/ahjjc/y555f)
+### [动态网加密入口](http://333m.megacupom.com/aaae/y555f)
 
-### [新唐人高速入口](https://royal-surf-de6b.133a.workers.dev/chjj/y5f)
+### [新唐人高速入口](http://333m.megacupom.com/ttcc/y5f)
 
-### [大纪元高速入口](https://royal-surf-de6b.133a.workers.dev/chjj/y7t)
+### [大纪元高速入口](http://333m.megacupom.com/mttt/y7t)
 
-### [明慧网高速入口](https://royal-surf-de6b.133a.workers.dev/tyoo/y3t)
+### [明慧网高速入口](http://333m.megacupom.com/ttbb/y3t)
 
-### [退党网高速入口](https://royal-surf-de6b.133a.workers.dev/bkkk/y8t)
+### [退党网高速入口](http://333m.megacupom.com/ttuyy/y8t)
 
-### [禁闻网高速入口](https://royal-surf-de6b.133a.workers.dev/ccvy/y16f)
+### [禁闻网高速入口](http://333m.megacupom.com/ttkk/y16f)
 
 
 
