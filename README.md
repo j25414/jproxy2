@@ -17,17 +17,19 @@
 
 
 
-### [动态网加密入口](https://nameless-sound-7e11.gaew3.workers.dev/aaae/y555f)
+### [动态网加密入口](https://555.gaew3.workers.dev/ahhe/y555f)
 
-### [新唐人高速入口](https://nameless-sound-7e11.gaew3.workers.dev/ttcc/y5f)
+### [新唐人高速入口](https://555.gaew3.workers.dev/tthh/y5f)
 
-### [大纪元高速入口](https://nameless-sound-7e11.gaew3.workers.dev/mttt/y7t)
+### [大纪元高速入口](https://555.gaew3.workers.dev/mhht/y7t)
 
-### [明慧网高速入口](https://nameless-sound-7e11.gaew3.workers.dev/ttbb/y3t)
 
-### [退党网高速入口](https://nameless-sound-7e11.gaew3.workers.dev/ttuyy/y8t)
+### [明慧网高速入口](https://555.gaew3.workers.dev/tnnb/y3t)
 
-### [禁闻网高速入口](https://nameless-sound-7e11.gaew3.workers.dev/ttkk/y16f)
+### [退党网高速入口](https://555.gaew3.workers.dev/tnnyy/y8t)
+
+### [禁闻网高速入口](https://555.gaew3.workers.dev/tkkk/y16f)
+
 
 
 
