@@ -17,7 +17,7 @@
 
 
 
-### [动态网加密入口](https://jyg88.f32.workers.dev/y555f)
+### [动态网加密入口](https://jyg88.f32.workers.dev/dwww/y555f)
 
 ### [新唐人高速入口](https://jyg88.f32.workers.dev/tthh/y5f)
 
