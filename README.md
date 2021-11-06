@@ -17,17 +17,17 @@
 
 
 
-### [动态网加密入口](https://88uaa.254oij.workers.dev/ayyy/y555f)
+### [动态网加密入口](https://blue-base-27eb.rsaa.workers.dev/ayyy/y555f)
 
-### [新唐人高速入口](https://88uaa.254oij.workers.dev/tyyy/y5f)
+### [新唐人高速入口](https://blue-base-27eb.rsaa.workers.dev/tyyy/y5f)
 
-### [大纪元高速入口](https://88uaa.254oij.workers.dev/myyy/y7t)
+### [大纪元高速入口](https://blue-base-27eb.rsaa.workers.dev/myyy/y7t)
 
-### [明慧网高速入口](https://88uaa.254oij.workers.dev/tkkk/y3t)
+### [明慧网高速入口](https://blue-base-27eb.rsaa.workers.dev/tkkk/y3t)
 
-### [退党网高速入口](https://88uaa.254oij.workers.dev/tnkkk/y8t)
+### [退党网高速入口](https://blue-base-27eb.rsaa.workers.dev/tnkkk/y8t)
 
-### [禁闻网高速入口](https://88uaa.254oij.workers.dev/tccc/y16f)
+### [禁闻网高速入口](https://blue-base-27eb.rsaa.workers.dev/tccc/y16f)
 
 
 
