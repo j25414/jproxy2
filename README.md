@@ -17,17 +17,17 @@
 
 
 
-### [动态网加密入口](https://9988.rwyw43.workers.dev/ayyy/y555f)
+### [动态网加密入口](https://jolly-aaee.f32.workers.dev/ayyy/y555f)
 
-### [新唐人高速入口](https://9988.rwyw43.workers.dev/tyyy/y5f)
+### [新唐人高速入口](https://jolly-aaee.f32.workers.dev/tyyy/y5f)
 
-### [大纪元高速入口](https://9988.rwyw43.workers.dev/myyy/y7t)
+### [大纪元高速入口](https://jolly-aaee.f32.workers.dev/myyy/y7t)
 
-### [明慧网高速入口](https://9988.rwyw43.workers.dev/tkkk/y3t)
+### [明慧网高速入口](https://jolly-aaee.f32.workers.dev/tkkk/y3t)
 
-### [退党网高速入口](https://9988.rwyw43.workers.dev/tnkkk/y8t)
+### [退党网高速入口](https://jolly-aaee.f32.workers.dev/tnkkk/y8t)
 
-### [禁闻网高速入口](https://9988.rwyw43.workers.dev/tccc/y16f)
+### [禁闻网高速入口](https://jolly-aaee.f32.workers.dev/tccc/y16f)
 
 
 
