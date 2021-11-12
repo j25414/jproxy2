@@ -15,20 +15,19 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](https://fancy-fog-753a.3ee.workers.dev/)
+### [聚缘阁禁闻导航](https://morning-snowflake-c231.jygtv.workers.dev/)
 
-### [动态网加密入口](https://jolly-aaee.f32.workers.dev/ayyy/y555f)
+### [动态网加密入口](https://247a.gaew3.workers.dev/ayyy/y555f)
 
-### [新唐人高速入口](https://jolly-aaee.f32.workers.dev/tyyy/y5f)
+### [新唐人高速入口](https://247a.gaew3.workers.dev/tuuy/y5f)
 
-### [大纪元高速入口](https://jolly-aaee.f32.workers.dev/myyy/y7t)
+### [大纪元高速入口](https://247a.gaew3.workers.dev/muuy/y7t)
 
-### [明慧网高速入口](https://jolly-aaee.f32.workers.dev/tkkk/y3t)
+### [明慧网高速入口](https://247a.gaew3.workers.dev/tuuk/y3t)
 
-### [退党网高速入口](https://jolly-aaee.f32.workers.dev/tnkkk/y8t)
+### [退党网高速入口](https://247a.gaew3.workers.dev/hhkk/y8t)
 
-### [禁闻网高速入口](https://jolly-aaee.f32.workers.dev/tccc/y16f)
-
+### [禁闻网高速入口](https://247a.gaew3.workers.dev/hhhc/y16f)
 
 
 ***
