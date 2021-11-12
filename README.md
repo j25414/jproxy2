@@ -15,7 +15,7 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](https://morning-snowflake-c231.jygtv.workers.dev/)
+### [聚缘阁禁闻导航](https://lively-lake-3511.3ee.workers.dev/)
 
 ### [动态网加密入口](https://247a.gaew3.workers.dev/ayyy/y555f)
 
