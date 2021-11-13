@@ -15,19 +15,19 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](https://lively-lake-3511.3ee.workers.dev/)
+### [聚缘阁禁闻导航](https://jygdaaa.a225.workers.dev/)
 
-### [动态网加密入口](https://steep-glade-3acb.133a.workers.dev/ayyy/y555f)
+### [动态网加密入口](https://88neder.a225.workers.dev/ayyy/y555f)
 
-### [新唐人高速入口](https://steep-glade-3acb.133a.workers.dev/tuuy/y5f)
+### [新唐人高速入口](https://88neder.a225.workers.dev/tuuy/y5f)
 
-### [大纪元高速入口](https://steep-glade-3acb.133a.workers.dev/muuy/y7t)
+### [大纪元高速入口](https://88neder.a225.workers.dev/muuy/y7t)
 
-### [明慧网高速入口](https://steep-glade-3acb.133a.workers.dev/tuuk/y3t)
+### [明慧网高速入口](https://88neder.a225.workers.dev/tuuk/y3t)
 
-### [退党网高速入口](https://steep-glade-3acb.133a.workers.dev/hhkk/y8t)
+### [退党网高速入口](https://88neder.a225.workers.dev/hhkk/y8t)
 
-### [禁闻网高速入口](https://steep-glade-3acb.133a.workers.dev/hhhc/y16f)
+### [禁闻网高速入口](https://88neder.a225.workers.dev/hhhc/y16f)
 
 
 ***
