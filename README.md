@@ -15,6 +15,8 @@
 
 一键点击 轻松翻墙
 
+### [聚缘阁禁闻导航](http://d2.aewb5.cf)
+
 ### [动态网加密入口](http://6y.aewb4.tk/ayeeyy/y555f)
 
 ### [新唐人高速入口](http://6y.aewb4.tk/tuueey/y5f)
