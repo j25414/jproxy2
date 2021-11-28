@@ -17,17 +17,17 @@
 
 ### [聚缘阁禁闻导航](http://d2.aewb5.cf)
 
-### [动态网加密入口](http://6y.aewb4.tk/ayeeyy/y555f)
+### [动态网加密入口](http://6y.aewb5.cf/acccc/y555f)
 
-### [新唐人高速入口](http://6y.aewb4.tk/tuueey/y5f)
+### [新唐人高速入口](http://6y.aewb5.cf/tccccy/y5f)
 
-### [大纪元高速入口](http://6y.aewb4.tk/muueey/y7t)
+### [大纪元高速入口](http://6y.aewb5.cf/muccccy/y7t)
 
-### [明慧网高速入口](http://6y.aewb4.tk/tueeuk/y3t)
+### [明慧网高速入口](http://6y.aewb5.cf/tuccck/y3t)
 
-### [退党网高速入口](http://6y.aewb4.tk/heehkk/y8t)
+### [退党网高速入口](http://6y.aewb5.cf/heexxx/y8t)
 
-### [看中国高速入口](http://6y.aewb4.tk/hheehc/y11f)
+### [看中国高速入口](http://6y.aewb5.cf/hheccc/y11f)
 
 
 ***
