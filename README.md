@@ -27,7 +27,7 @@
 
 ### [退党网高速入口](http://6y.aewb4.tk/heehkk/y8t)
 
-### [禁闻网高速入口](http://6y.aewb4.tk/hheehc/y16f)
+### [看中国高速入口](http://6y.aewb4.tk/hheehc/y11f)
 
 
 ***
@@ -44,8 +44,6 @@
 ### [24小时实事禁闻](https://github.com/fyvn2199/djy/blob/master/gb/n24hr.md?dfh#1)
 
 ### [大纪元实事新闻](https://github.com/fyvn2199/djy/blob/master/gb/nsc413.md?dfh#1)
-
-### [禁闻网实事新闻](https://github.com/fqnews/bnews)
 
 ### [禁书在线阅读](https://github.com/txyzum203/djy/blob/master/gb/9p.md?flntdtv#1)
 
