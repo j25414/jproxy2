@@ -15,19 +15,19 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](http://333.far.velkat.org/acccc/y555f)
+### [聚缘阁禁闻导航](http://88.aewb4.ml/acccc/y555f)
 
-### [动态网加密入口](http://333.far.velkat.org/yyyyyy/y555f)
+### [动态网加密入口](http://88.aewb4.ml/yyyyyy/y555f)
 
-### [新唐人高速入口](http://333.far.velkat.org/acccc/y5f)
+### [新唐人高速入口](http://88.aewb4.ml/acccc/y5f)
 
-### [大纪元高速入口](http://333.far.velkat.org/acccc/y7f)
+### [大纪元高速入口](http://88.aewb4.ml/acccc/y7f)
 
-### [明慧网高速入口](http://333.far.velkat.org/acccc/y3f)
+### [明慧网高速入口](http://88.aewb4.ml/acccc/y3f)
 
-### [退党网高速入口](http://333.far.velkat.org/acccc/y8f)
+### [退党网高速入口](http://88.aewb4.ml/acccc/y8f)
 
-### [看中国高速入口](http://333.far.velkat.org/acccc/d11f)
+### [看中国高速入口](http://88.aewb4.ml/acccc/d11f)
 
 
 ***
