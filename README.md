@@ -15,19 +15,19 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](http://88.aewb4.ml/acccc/y555f)
+### [聚缘阁禁闻导航](http://cc2.candycoffee.tw/)
 
-### [动态网加密入口](http://88.aewb4.ml/yyyyyy/y555f)
+### [动态网加密入口](http://cc2.candycoffee.tw/)
 
-### [新唐人高速入口](http://88.aewb4.ml/acccc/y5f)
+### [新唐人高速入口](http://cc2.candycoffee.tw/)
 
-### [大纪元高速入口](http://88.aewb4.ml/acccc/y7f)
+### [大纪元高速入口](http://cc2.candycoffee.tw/)
 
-### [明慧网高速入口](http://88.aewb4.ml/acccc/y3f)
+### [明慧网高速入口](http://cc2.candycoffee.tw/)
 
-### [退党网高速入口](http://88.aewb4.ml/acccc/y8f)
+### [退党网高速入口](http://cc2.candycoffee.tw/)
 
-### [看中国高速入口](http://88.aewb4.ml/acccc/d11f)
+### [看中国高速入口](http://cc2.candycoffee.tw/)
 
 
 ***
