@@ -15,17 +15,17 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](http://cc2.candycoffee.tw/)
+### [聚缘阁禁闻导航](http://c99.celebsplay.com/)
 
-### [动态网加密入口](http://cc2.candycoffee.tw/)
+### [动态网加密入口](http://c99.celebsplay.com/)
 
-### [新唐人高速入口](http://cc2.candycoffee.tw/)
+### [新唐人高速入口](http://c99.celebsplay.com/)
 
-### [大纪元高速入口](http://cc2.candycoffee.tw/)
+### [大纪元高速入口](http://c99.celebsplay.com/)
 
-### [明慧网高速入口](http://cc2.candycoffee.tw/)
+### [明慧网高速入口](http://c99.celebsplay.com/)
 
-### [退党网高速入口](http://cc2.candycoffee.tw/)
+### [退党网高速入口](http://c99.celebsplay.com/)
 
 ### [看中国高速入口](http://cc2.candycoffee.tw/)
 
