@@ -17,17 +17,17 @@
 
 ### [聚缘阁禁闻导航](http://c99.celebsplay.com/)
 
-### [动态网加密入口](http://c99.celebsplay.com/)
+### [聚缘阁禁闻导航](http://e2.zwoa2.tk/aaa/e333r)
 
-### [新唐人高速入口](http://c99.celebsplay.com/)
+### [动态网加密入口](http://e2.zwoa2.tk/aaa/e333r)
 
-### [大纪元高速入口](http://c99.celebsplay.com/)
+### [新唐人高速入口](http://e2.zwoa2.tk/aaa/e5t)
 
-### [明慧网高速入口](http://c99.celebsplay.com/)
+### [大纪元高速入口](http://e2.zwoa2.tk/aaa/e7t)
 
-### [退党网高速入口](http://c99.celebsplay.com/)
+### [明慧网高速入口](http://e2.zwoa2.tk/aaa/e3t)
 
-### [看中国高速入口](http://cc2.candycoffee.tw/)
+### [退党网高速入口](http://e2.zwoa2.tk/aaa/e8t)
 
 
 ***
