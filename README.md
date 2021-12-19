@@ -15,19 +15,19 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](http://c99.celebsplay.com/)
 
-### [聚缘阁禁闻导航](http://e2.zwoa2.tk/aaa/e333r)
 
-### [动态网加密入口](http://e2.zwoa2.tk/aaa/e333r)
+### [聚缘阁禁闻导航](http://ssu.schnitzelt0ast.io/aaa/e333r)
 
-### [新唐人高速入口](http://e2.zwoa2.tk/aaa/e5t)
+### [动态网加密入口](http://ssu.schnitzelt0ast.io/aaa/e333r)
 
-### [大纪元高速入口](http://e2.zwoa2.tk/aaa/e7t)
+### [新唐人高速入口](http://ssu.schnitzelt0ast.io/aaa/e5t)
 
-### [明慧网高速入口](http://e2.zwoa2.tk/aaa/e3t)
+### [大纪元高速入口](http://ssu.schnitzelt0ast.io/aaa/e7t)
 
-### [退党网高速入口](http://e2.zwoa2.tk/aaa/e8t)
+### [明慧网高速入口](http://ssu.schnitzelt0ast.io/aaa/e3t)
+
+### [退党网高速入口](http://ssu.schnitzelt0ast.io/aaa/e8t)
 
 
 ***
