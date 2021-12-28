@@ -17,17 +17,17 @@
 
 
 
-### [聚缘阁禁闻导航](http://366yy9.eloop.elogs.com.au/aooaa/e333r)
+### [聚缘阁禁闻导航](https://a2.zwoa2.ga/aooaa/e333r)
 
-### [动态网加密入口](http://3669ee.eloop.elogs.com.au/araa/e333r)
+### [动态网加密入口](https://a2.zwoa2.ga/araa/e333r)
 
-### [新唐人高速入口](http://3669vv.eloop.elogs.com.au/aaa/e5t)
+### [新唐人高速入口](https://a2.zwoa2.ga/aaa/e5t)
 
-### [大纪元高速入口](http://3669ddr.eloop.elogs.com.au/aaea/e7t)
+### [大纪元高速入口](https://a2.zwoa2.ga/aaea/e7t)
 
-### [明慧网高速入口](http://3669w33.eloop.elogs.com.au/aaua/e3t)
+### [明慧网高速入口](https://a2.zwoa2.ga/aaua/e3t)
 
-### [退党网高速入口](http://3669444.eloop.elogs.com.au/auuaa/e8t)
+### [退党网高速入口](https://a2.zwoa2.ga/auuaa/e8t)
 
 
 ***
