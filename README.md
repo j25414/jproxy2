@@ -17,17 +17,17 @@
 
 
 
-### [聚缘阁禁闻导航](https://a2.zwoa2.ga/aooaa/e333r)
+### [聚缘阁禁闻导航](https://t1.zwoa8.cf/aooaa/e333r)
 
-### [动态网加密入口](https://a2.zwoa2.ga/araa/e333r)
+### [动态网加密入口](https://t1.zwoa8.cf/araa/e333r)
 
-### [新唐人高速入口](https://a2.zwoa2.ga/aaa/e5t)
+### [新唐人高速入口](https://t1.zwoa8.cf/aaa/e5t)
 
-### [大纪元高速入口](https://a2.zwoa2.ga/aaea/e7t)
+### [大纪元高速入口](https://t1.zwoa8.cf/aaea/e7t)
 
-### [明慧网高速入口](https://a2.zwoa2.ga/aaua/e3t)
+### [明慧网高速入口](https://t1.zwoa8.cf/aaua/e3t)
 
-### [退党网高速入口](https://a2.zwoa2.ga/auuaa/e8t)
+### [退党网高速入口](https://t1.zwoa8.cf/auuaa/e8t)
 
 
 ***
