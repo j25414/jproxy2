@@ -17,7 +17,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://d2.glne2.gq/aooaa/e333r)
+### [聚缘阁禁闻导航](https://dik.si/jygdh)
 
 ### [动态网加密入口](https://tr.zwoa4.cf/araa/e333r)
 
