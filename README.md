@@ -19,15 +19,23 @@
 
 ### [聚缘阁禁闻导航](https://dik.si/jygdh)
 
-### [动态网加密入口](https://tr.zwoa4.cf/araa/e333r)
+### [动态网加密入口](https://21.oooa5.gq/jyg/e444r)
 
-### [新唐人高速入口](https://tr.zwoa4.cf/aaa/e5t)
+### [无界网加密入口](https://21.oooa5.gq/afff/n12r)
 
-### [大纪元高速入口](https://tr.zwoa4.cf/aaea/e7t)
+### [新唐人高速入口](https://21.oooa5.gq/mmmg/e5n)
 
-### [明慧网高速入口](https://tr.zwoa4.cf/aaua/e3t)
+### [大纪元高速入口](https://21.oooa5.gq/yyyyy/e7n)
 
-### [退党网高速入口](https://tr.zwoa4.cf/auuaa/e8t)
+### [退党网高速入口](https://21.oooa5.gq/aakkk/e8m)
+
+### [明慧网高速入口](https://21.oooa5.gq/aakkk/e3m)
+
+### [阿波罗高速入口](https://21.oooa5.gq/aakkk/e13m)
+
+### [看中国高速入口](https://21.oooa5.gq/aakkk/e11m)
+
+### [美国之音高速入口](https://21.oooa5.gq/aakkk/e18m)
 
 
 ***
