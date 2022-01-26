@@ -10,12 +10,11 @@
 
 ### [聚缘阁代理电脑j325增强翻墙版隆重推出](https://gitlab.com/juyuange/2/-/raw/master/j325dn.rar)2021/3/25
 
-
 ***
 
 一键点击 轻松翻墙
 
-
+### [聚缘阁视频网站](https://purple-rain-5f7f.dawew3.workers.dev)
 
 ### [动态网加密入口](https://c2.oooa2.ga/jyg/e444r)
 
