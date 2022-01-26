@@ -14,7 +14,7 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网站](https://purple-rain-5f7f.dawew3.workers.dev)
+### [聚缘阁视频网站](https://v1.lian.workers.dev/)
 
 ### [动态网加密入口](https://c2.oooa2.ga/jyg/e444r)
 
