@@ -14,25 +14,23 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网站](https://v1.lian.workers.dev/)
+### [动态网加密入口](https://g1.jyg2.xyz/dwwe3/e444r)
 
-### [动态网加密入口](https://c2.oooa2.ga/jyg/e444r)
+### [无界网加密入口](https://g1.jyg2.xyz/afff/n12r)
 
-### [无界网加密入口](https://c2.oooa2.ga/afff/n12r)
+### [新唐人高速入口](https://g1.jyg2.xyz/mmmg/e5n)
 
-### [新唐人高速入口](https://c2.oooa2.ga/mmmg/e5n)
+### [大纪元高速入口](https://g1.jyg2.xyz/yyyyy/e7n)
 
-### [大纪元高速入口](https://c2.oooa2.ga/yyyyy/e7n)
+### [退党网高速入口](https://g1.jyg2.xyz/aakkk/e8m)
 
-### [退党网高速入口](https://c2.oooa2.ga/aakkk/e8m)
+### [明慧网高速入口](https://g1.jyg2.xyz/aakkk/e3m)
 
-### [明慧网高速入口](https://c2.oooa2.ga/aakkk/e3m)
+### [阿波罗高速入口](https://g1.jyg2.xyz/aakkk/e13m)
 
-### [阿波罗高速入口](https://c2.oooa2.ga/aakkk/e13m)
+### [看中国高速入口](https://g1.jyg2.xyz/aakkk/e11m)
 
-### [看中国高速入口](https://c2.oooa2.ga/aakkk/e11m)
-
-### [美国之音高速入口](https://c2.oooa2.ga/aakkk/e18m)
+### [美国之音高速入口](https://g1.jyg2.xyz/aakkk/e18m)
 
 ***
 
