@@ -14,25 +14,25 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](https://d1.bftw6.tk)
+### [聚缘阁禁闻导航](https://d4.6666f.ga)
 
-### [动态网加密入口](https://25.bftw6.tk/dwwe3/e444r)
+### [动态网加密入口](https://jyg8.6666f.ga/dwwe3/e444r)
 
-### [无界网加密入口](https://25.bftw6.tk/afff/n12r)
+### [无界网加密入口](https://jyg8.6666f.ga/afff/n12r)
 
-### [新唐人高速入口](https://25.bftw6.tk/mmmg/e5n)
+### [新唐人高速入口](https://jyg8.6666f.ga/mmmg/e5n)
 
-### [大纪元高速入口](https://25.bftw6.tk/yyyyy/e7n)
+### [大纪元高速入口](https://jyg8.6666f.ga/yyyyy/e7n)
 
-### [退党网高速入口](https://25.bftw6.tk/aakkk/e8m)
+### [退党网高速入口](https://jyg8.6666f.ga/aakkk/e8m)
 
-### [明慧网高速入口](https://25.bftw6.tk/aakkk/e3m)
+### [明慧网高速入口](https://jyg8.6666f.ga/aakkk/e3m)
 
-### [阿波罗高速入口](https://25.bftw6.tk/aakkk/e13m)
+### [阿波罗高速入口](https://jyg8.6666f.ga/aakkk/e13m)
 
-### [看中国高速入口](https://25.bftw6.tk/aakkk/e11m)
+### [看中国高速入口](https://jyg8.6666f.ga/aakkk/e11m)
 
-### [美国之音高速入口](https://25.bftw6.tk/aakkk/e18m)
+### [美国之音高速入口](https://jyg8.6666f.ga/aakkk/e18m)
 
 ***
 
