@@ -14,6 +14,8 @@
 
 ## **广传真相得福报，聚缘阁恭祝大家新年快乐，万事如意！**
 
+**新年礼包，无需技术制作聚缘阁代理教程。**[下载](https://gitlab.com/j25414/jyg/-/raw/master/jygdl.rar)
+
 ### [聚缘阁禁闻导航](https://dt1.domia.cf)
 
 ### [动态网加密入口](https://88t.jyg1.xyz/dwwe3/e444r)
