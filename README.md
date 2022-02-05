@@ -18,23 +18,23 @@
 
 ### [聚缘阁禁闻导航](https://dt1.uoopk.ga)
 
-### [动态网加密入口](https://8t.fdsse.gq/dwwe3/e444r)
+### [动态网加密入口](https://885.ngbc.tk/dwwe3/e444r)
 
-### [无界网加密入口](https://8t.fdsse.gq/afff/n12r)
+### [无界网加密入口](https://885.ngbc.tk/afff/n12r)
 
-### [新唐人高速入口](https://8t.fdsse.gq/mmmg/e5n)
+### [新唐人高速入口](https://885.ngbc.tk/mmmg/e5n)
 
-### [大纪元高速入口](https://8t.fdsse.gq/yyyyy/e7n)
+### [大纪元高速入口](https://885.ngbc.tk/yyyyy/e7n)
 
-### [退党网高速入口](https://8t.fdsse.gq/aakkk/e8m)
+### [退党网高速入口](https://885.ngbc.tk/aakkk/e8m)
 
-### [明慧网高速入口](https://8t.fdsse.gq/aakkk/e3m)
+### [明慧网高速入口](https://885.ngbc.tk/aakkk/e3m)
 
-### [阿波罗高速入口](https://8t.fdsse.gq/aakkk/e13m)
+### [阿波罗高速入口](https://885.ngbc.tk/aakkk/e13m)
 
-### [看中国高速入口](https://8t.fdsse.gq/aakkk/e11m)
+### [看中国高速入口](https://885.ngbc.tk/aakkk/e11m)
 
-### [美国之音高速入口](https://8t.fdsse.gq/aakkk/e18m)
+### [美国之音高速入口](https://885.ngbc.tk/aakkk/e18m)
 
 ***
 
