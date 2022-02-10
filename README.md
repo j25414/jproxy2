@@ -18,23 +18,23 @@
 
 ### [聚缘阁禁闻导航](https://dh2.domia.ga)
 
-### [动态网加密入口](https://47.domia.ga/dwwe3/e444r)
+### [动态网加密入口](https://85.bfaac.ml/dwwe3/e444r)
 
-### [无界网加密入口](https://47.domia.ga/afff/n12r)
+### [无界网加密入口](https://85.bfaac.ml/afff/n12r)
 
-### [新唐人高速入口](https://47.domia.ga/mmmg/e5n)
+### [新唐人高速入口](https://85.bfaac.ml/mmmg/e5n)
 
-### [大纪元高速入口](https://47.domia.ga/yyyyy/e7n)
+### [大纪元高速入口](https://85.bfaac.ml/yyyyy/e7n)
 
-### [退党网高速入口](https://47.domia.ga/aakkk/e8m)
+### [退党网高速入口](https://85.bfaac.ml/aakkk/e8m)
 
-### [明慧网高速入口](https://885.riiek.ga/aakkk/e3m)
+### [明慧网高速入口](https://85.bfaac.ml/aakkk/e3m)
 
-### [阿波罗高速入口](https://47.domia.ga/aakkk/e13m)
+### [阿波罗高速入口](https://85.bfaac.ml/aakkk/e13m)
 
-### [看中国高速入口](https://47.domia.ga/aakkk/e11m)
+### [看中国高速入口](https://85.bfaac.ml/aakkk/e11m)
 
-### [美国之音高速入口](https://47.domia.ga/aakkk/e18m)
+### [美国之音高速入口](https://85.bfaac.ml/aakkk/e18m)
 
 ***
 
