@@ -16,7 +16,7 @@
 
 **新年礼包，无需技术制作聚缘阁代理教程。**[下载](https://gitlab.com/j25414/jyg/-/raw/master/jygdl.rar)
 
-### [聚缘阁禁闻导航](https://dh2.domia.ga)
+### [聚缘阁禁闻导航](https://dh3.rwyw43.workers.dev)
 
 ### [动态网加密入口](https://884.kooop.cf/dwoo/u444p)
 
