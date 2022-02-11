@@ -18,23 +18,23 @@
 
 ### [聚缘阁禁闻导航](https://dh2.domia.ga)
 
-### [动态网加密入口](https://85.bfaac.ml/dwwe3/e444r)
+### [动态网加密入口](https://884.kooop.cf/dwoo/u444p)
 
-### [无界网加密入口](https://85.bfaac.ml/afff/n12r)
+### [无界网加密入口](https://884.kooop.cf/abbbb/n12a)
 
-### [新唐人高速入口](https://85.bfaac.ml/mmmg/e5n)
+### [新唐人高速入口](https://884.kooop.cf/mtttt/e5r)
 
-### [大纪元高速入口](https://85.bfaac.ml/yyyyy/e7n)
+### [大纪元高速入口](https://884.kooop.cf/yyyyy/e7b)
 
-### [退党网高速入口](https://85.bfaac.ml/aakkk/e8m)
+### [退党网高速入口](https://884.kooop.cf/aakkk/e8h)
 
-### [明慧网高速入口](https://85.bfaac.ml/aakkk/e3m)
+### [明慧网高速入口](https://884.kooop.cf/aakkk/e3r)
 
-### [阿波罗高速入口](https://85.bfaac.ml/aakkk/e13m)
+### [阿波罗高速入口](https://884.kooop.cf/aakkk/e13e)
 
-### [看中国高速入口](https://85.bfaac.ml/aakkk/e11m)
+### [看中国高速入口](https://884.kooop.cf/aakkk/e11n)
 
-### [美国之音高速入口](https://85.bfaac.ml/aakkk/e18m)
+### [美国之音高速入口](https://884.kooop.cf/aakkk/e18m)
 
 ***
 
