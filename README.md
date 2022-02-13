@@ -18,23 +18,23 @@
 
 ### [聚缘阁禁闻导航](https://dh3.rwyw43.workers.dev)
 
-### [动态网加密入口](https://14.iooza8.ga/dwoo/u444p)
+### [动态网加密入口](https://85.hyytr.ml/dwoo/u444p)
 
-### [无界网加密入口](https://14.iooza8.ga/abbbb/n12a)
+### [无界网加密入口](https://85.hyytr.ml/abbbb/n12a)
 
-### [新唐人高速入口](https://14.iooza8.ga/mtttt/e5r)
+### [新唐人高速入口](https://85.hyytr.ml/mtttt/e5r)
 
-### [大纪元高速入口](https://14.iooza8.ga/yyyyy/e7b)
+### [大纪元高速入口](https://85.hyytr.ml/yyyyy/e7b)
 
-### [退党网高速入口](https://14.iooza8.ga/aakkk/e8h)
+### [退党网高速入口](https://85.hyytr.ml/aakkk/e8h)
 
-### [明慧网高速入口](https://14.iooza8.ga/aakkk/e3r)
+### [明慧网高速入口](https://85.hyytr.ml/aakkk/e3r)
 
-### [阿波罗高速入口](https://14.iooza8.ga/aakkk/e13e)
+### [阿波罗高速入口](https://85.hyytr.ml/aakkk/e13e)
 
-### [看中国高速入口](https://14.iooza8.ga/aakkk/e11n)
+### [看中国高速入口](https://85.hyytr.ml/aakkk/e11n)
 
-### [美国之音高速入口](https://14.iooza8.ga/aakkk/e18m)
+### [美国之音高速入口](https://85.hyytr.ml/aakkk/e18m)
 
 ***
 
