@@ -16,25 +16,24 @@
 
 **无需技术制作聚缘阁代理教程。**[下载](https://gitlab.com/j25414/jyg/-/raw/master/jygdl.rar)
 
-### [聚缘阁禁闻导航](https://dh3.rwyw43.workers.dev)
+### [动态网加密入口](https://89.ngopp.gq/dwoo/u444p)
 
-### [动态网加密入口](https://8p.5885m.gq/dwoo/u444p)
+### [无界网加密入口](https://89.ngopp.gq/abbbb/n12a)
 
-### [无界网加密入口](https://8p.5885m.gq/abbbb/n12a)
+### [新唐人高速入口](https://89.ngopp.gq/mtttt/e5r)
 
-### [新唐人高速入口](https://8p.5885m.gq/mtttt/e5r)
+### [大纪元高速入口](https://89.ngopp.gq/yyyyy/e7b)
 
-### [大纪元高速入口](https://8p.5885m.gq/yyyyy/e7b)
+### [退党网高速入口](https://89.ngopp.gq/aakkk/e8h)
 
-### [退党网高速入口](https://8p.5885m.gq/aakkk/e8h)
+### [明慧网高速入口](https://89.ngopp.gq/aakkk/e3r)
 
-### [明慧网高速入口](https://8p.5885m.gq/aakkk/e3r)
+### [阿波罗高速入口](https://89.ngopp.gq/aakkk/e13e)
 
-### [阿波罗高速入口](https://8p.5885m.gq/aakkk/e13e)
+### [看中国高速入口](https://89.ngopp.gq/aakkk/e11n)
 
-### [看中国高速入口](https://8p.5885m.gq/aakkk/e11n)
+### [美国之音高速入口](https://89.ngopp.gq/aakkk/e18m)
 
-### [美国之音高速入口](https://8p.5885m.gq/aakkk/e18m)
 ***
 
 
