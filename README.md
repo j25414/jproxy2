@@ -16,23 +16,23 @@
 
 **无需技术制作聚缘阁代理教程。**[下载](https://gitlab.com/j25414/jyg/-/raw/master/jygdl.rar)
 
-### [动态网加密入口](https://885.byude.ga/dwoo/u444p)
+### [动态网加密入口](https://k5.ouuyf.ga/dwoo/u444p)
 
-### [无界网加密入口](https://885.byude.ga/abbbb/n12a)
+### [无界网加密入口](https://k5.ouuyf.ga/abbbb/n12a)
 
-### [新唐人高速入口](https://885.byude.ga/mtttt/e5r)
+### [新唐人高速入口](https://k5.ouuyf.ga/mtttt/e5r)
 
-### [大纪元高速入口](https://885.byude.ga/yyyyy/e7b)
+### [大纪元高速入口](https://k5.ouuyf.ga//yyyyy/e7b)
 
-### [退党网高速入口](https://885.byude.ga/aakkk/e8h)
+### [退党网高速入口](https://k5.ouuyf.ga/aakkk/e8h)
 
-### [明慧网高速入口](https://885.byude.ga/aakkk/e3r)
+### [明慧网高速入口](https://k5.ouuyf.ga/aakkk/e3r)
 
-### [阿波罗高速入口](https://885.byude.ga/aakkk/e13e)
+### [阿波罗高速入口](https://k5.ouuyf.ga/aakkk/e13e)
 
-### [看中国高速入口](https://885.byude.ga/aakkk/e11n)
+### [看中国高速入口](https://k5.ouuyf.ga/aakkk/e11n)
 
-### [美国之音高速入口](https://885.byude.ga/aakkk/e18m)
+### [美国之音高速入口](https://k5.ouuyf.ga/aakkk/e18m)
 ***
 
 
