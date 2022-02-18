@@ -16,23 +16,23 @@
 
 **无需技术制作聚缘阁代理教程。**[下载](https://gitlab.com/j25414/jyg/-/raw/master/jygdl.rar)
 
-### [动态网加密入口](https://43.zwoa2.cf/dho/u444p)
+### [动态网加密入口](https://14.zwet7.ml/dwoo/u444p)
 
-### [无界网加密入口](https://43.zwoa2.cf/ayb/n12a)
+### [无界网加密入口](https://14.zwet7.ml/abbbb/n12a)
 
-### [新唐人高速入口](https://43.zwoa2.cf/mthhtt/a5r)
+### [新唐人高速入口](https://14.zwet7.ml/mtttt/e5r)
 
-### [大纪元高速入口](https://43.zwoa2.cf/yhhhy/e7e)
+### [大纪元高速入口](https://14.zwet7.ml/yyyyy/e7b)
 
-### [退党网高速入口](https://43.zwoa2.cf/arrrkk/e8e)
+### [退党网高速入口](https://14.zwet7.ml/aakkk/e8h)
 
-### [明慧网高速入口](https://43.zwoa2.cf/urrk/e3b)
+### [明慧网高速入口](https://14.zwet7.ml/aakkk/e3r)
 
-### [阿波罗高速入口](https://43.zwoa2.cf/asskk/e13a)
+### [阿波罗高速入口](https://14.zwet7.ml/aakkk/e13e)
 
-### [看中国高速入口](https://43.zwoa2.cf/aakkk/y11n)
+### [看中国高速入口](https://14.zwet7.ml/aakkk/e11n)
 
-### [美国之音高速入口](https://43.zwoa2.cf/annhkk/e18m)
+### [美国之音高速入口](https://14.zwet7.ml/aakkk/e18m)
 
 ***
 
