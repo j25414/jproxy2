@@ -16,24 +16,23 @@
 
 **无需技术制作聚缘阁代理教程。**[下载](https://gitlab.com/j25414/jyg/-/raw/master/jygdl.rar)
 
-### [动态网加密入口](https://r4.iuytf.gq/dwoo/u444p)
+### [动态网加密入口](https://4r.herjy.ga/dho/u444p)
 
-### [无界网加密入口](https://r4.iuytf.gq/abbbb/n12a)
+### [无界网加密入口](https://4r.herjy.ga/ayb/n12a)
 
-### [新唐人高速入口](https://r4.iuytf.gq/mtttt/e5r)
+### [新唐人高速入口](https://4r.herjy.ga/mthhtt/a5r)
 
-### [大纪元高速入口](https://r4.iuytf.gq/yyyyy/e7b)
+### [大纪元高速入口](https://4r.herjy.ga/yhhhy/e7e)
 
-### [退党网高速入口](https://r4.iuytf.gq/aakkk/e8h)
+### [退党网高速入口](https://4r.herjy.ga/arrrkk/e8e)
 
-### [明慧网高速入口](https://r4.iuytf.gq/aakkk/e3r)
+### [明慧网高速入口](https://4r.herjy.ga/urrk/e3b)
 
-### [阿波罗高速入口](https://r4.iuytf.gq/aakkk/e13e)
+### [阿波罗高速入口](https://4r.herjy.ga/asskk/e13a)
 
-### [看中国高速入口](https://r4.iuytf.gq/aakkk/e11n)
+### [看中国高速入口](https://4r.herjy.ga/aakkk/y11n)
 
-### [美国之音高速入口](https://r4.iuytf.gq/aakkk/e18m)
-
+### [美国之音高速入口](https://4r.herjy.ga/annhkk/e18m)
 
 ***
 
