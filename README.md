@@ -16,23 +16,23 @@
 
 **无需技术制作聚缘阁代理教程。**[下载](https://gitlab.com/j25414/jyg/-/raw/master/jygdl.rar)
 
-### [动态网加密入口](https://87.fluyu.cf/dho/u444p)
+### [动态网加密入口](https://67.holoavalon.com/dhott/u444p)
 
-### [无界网加密入口](https://87.fluyu.cf/ayb/n12a)
+### [无界网加密入口](https://67.holoavalon.com/auuu/n12a)
 
-### [新唐人高速入口](https://87.fluyu.cf/mthhtt/a5r)
+### [新唐人高速入口](https://67.holoavalon.com/moot/a5r)
 
-### [大纪元高速入口](https://87.fluyu.cf/yhhhy/e7e)
+### [大纪元高速入口](https://67.holoavalon.com/yhhpp/e7e)
 
-### [退党网高速入口](https://87.fluyu.cf/arrrkk/e8e)
+### [退党网高速入口](https://67.holoavalon.com/arrw/e8e)
 
-### [明慧网高速入口](https://87.fluyu.cf/urrk/e3b)
+### [明慧网高速入口](https://67.holoavalon.com/urbb/e3b)
 
-### [阿波罗高速入口](https://87.fluyu.cf/asskk/e13a)
+### [阿波罗高速入口](https://67.holoavalon.com/asop/e13a)
 
-### [看中国高速入口](https://87.fluyu.cf/aakkk/y11n)
+### [看中国高速入口](https://67.holoavalon.com/aaker/y11n)
 
-### [美国之音高速入口](https://87.fluyu.cf/annhkk/e18m)
+### [美国之音高速入口](https://67.holoavalon.com/annkl/e18m)
 
 ***
 
