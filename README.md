@@ -18,7 +18,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://h6.uooph.gq)
+### [聚缘阁禁闻导航](http://54.yoou5.ml)
 
 ### [动态网加密入口](https://69.uooph.gq/dwoo/u444p)
 
