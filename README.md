@@ -16,7 +16,7 @@
 
 **无需技术制作聚缘阁代理教程。**[下载](https://gitlab.com/j25414/jyg/-/raw/master/jygdl.rar)
 
-
+一键点击 轻松翻墙
 
 ### [聚缘阁禁闻导航](https://36.jopk.workers.dev)
 
