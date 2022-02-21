@@ -20,9 +20,9 @@
 
 
 
-### [聚缘阁视频网站](https://jygtv2.geerh.workers.dev)
+### [聚缘阁视频网站](https://3658.rwyw43.workers.dev)
 
-### [聚缘阁禁闻导航](https://36.jopk.workers.dev)
+### [聚缘阁禁闻导航](https://hidden-sunset-c11a.rwyw43.workers.dev)
 
 ### [动态网加密入口](https://69.uooph.gq/dwoo/u444p)
 
