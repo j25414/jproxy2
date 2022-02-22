@@ -20,9 +20,9 @@
 
 
 
-### [聚缘阁视频网站](https://vw3e3.rsaa.workers.dev)
+### [聚缘阁视频网站](https://v11.2324.workers.dev/)
 
-### [聚缘阁禁闻导航](https://d86656e.rsaa.workers.dev)
+### [聚缘阁禁闻导航](https://d56.2324.workers.dev)
 
 ### [动态网加密入口](https://88.vcsse.gq/dhfo/u444p)
 
