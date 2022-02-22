@@ -24,24 +24,23 @@
 
 ### [聚缘阁禁闻导航](https://hidden-sunset-c11a.rwyw43.workers.dev)
 
-### [动态网加密入口](https://14.byyyu.tk/dhott/u444p)
+### [动态网加密入口](https://3d.byyyu.ml/dhott/u444p)
 
-### [无界网加密入口](https://14.byyyu.tk/auuu/n12a)
+### [无界网加密入口](https://3d.byyyu.ml/auuu/n12a)
 
-### [新唐人高速入口](https://14.byyyu.tk/moot/a5r)
+### [新唐人高速入口](https://3d.byyyu.ml/moot/a5r)
 
-### [大纪元高速入口](https://14.byyyu.tk/yhhpp/e7e)
+### [大纪元高速入口](https://3d.byyyu.ml/yhhpp/e7e)
 
-### [退党网高速入口](https://14.byyyu.tk/arrw/e8e)
+### [退党网高速入口](https://3d.byyyu.ml/arrw/e8e)
 
-### [明慧网高速入口](https://14.byyyu.tk/urbb/e3b)
+### [明慧网高速入口](https://3d.byyyu.ml/urbb/e3b)
 
-### [阿波罗高速入口](https://14.byyyu.tk/asop/e13a)
+### [阿波罗高速入口](https://3d.byyyu.ml/asop/e13a)
 
-### [看中国高速入口](https://14.byyyu.tk/aaker/y11n)
+### [看中国高速入口](https://3d.byyyu.ml/aaker/y11n)
 
-### [美国之音高速入口](https://14.byyyu.tk/annkl/e18m)
-
+### [美国之音高速入口](https://3d.byyyu.ml/annkl/e18m)
 
 ***
 
