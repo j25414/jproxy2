@@ -24,7 +24,7 @@
 
 ### [聚缘阁禁闻导航](https://dh66584.baop.workers.dev)
 
-### [动态网加密入口](https://8u.gopee.cf/dhott/u444p)
+### [动态网加密入口](https://3t.holoavalon.com/dhott/u444p)
 
 ### [无界网加密入口](https://8u.gopee.cf/auuu/n12a)
 
