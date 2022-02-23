@@ -24,23 +24,23 @@
 
 ### [聚缘阁禁闻导航](https://d56.2324.workers.dev)
 
-### [动态网加密入口](https://88.vcsse.gq/dhfo/u444p)
+### [动态网加密入口](https://8u.gopee.cf/dhott/u444p)
 
-### [无界网加密入口](https://88.vcsse.gq/abbbb/m12a)
+### [无界网加密入口](https://8u.gopee.cf/auuu/n12a)
 
-### [新唐人高速入口](https://88.vcsse.gq/mtttt/u5r)
+### [新唐人高速入口](https://8u.gopee.cf/moot/a5r)
 
-### [大纪元高速入口](https://88.vcsse.gq/yyyyy/u7b)
+### [大纪元高速入口](https://8u.gopee.cf/yhhpp/e7e)
 
-### [退党网高速入口](https://88.vcsse.gq/aakkk/u8h)
+### [退党网高速入口](https://8u.gopee.cf/arrw/e8e)
 
-### [明慧网高速入口](https://88.vcsse.gq/aakkk/e3r)
+### [明慧网高速入口](https://8u.gopee.cf/urbb/e3b)
 
-### [阿波罗高速入口](https://88.vcsse.gq/aakkk/t13e)
+### [阿波罗高速入口](https://8u.gopee.cf/asop/e13a)
 
-### [看中国高速入口](https://88.vcsse.gq/aakkk/et11n)
+### [看中国高速入口](https://8u.gopee.cf/aaker/y11n)
 
-### [美国之音高速入口](https://88.vcsse.gq/aakkk/e18m)
+### [美国之音高速入口](https://8u.gopee.cf/nnkl/e18m)
 
 ***
 
