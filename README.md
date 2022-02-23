@@ -24,23 +24,23 @@
 
 ### [聚缘阁禁闻导航](https://dh66584.baop.workers.dev)
 
-### [动态网加密入口](https://3t.holoavalon.com/dhott/u444p)
+### [动态网加密入口](https://a1.n2remote.com/dhott/u444p)
 
-### [无界网加密入口](https://8u.gopee.cf/auuu/n12a)
+### [无界网加密入口](https://a1.n2remote.com/auuu/n12a)
 
-### [新唐人高速入口](https://8u.gopee.cf/moot/a5r)
+### [新唐人高速入口](https://a1.n2remote.com/moot/a5r)
 
-### [大纪元高速入口](https://8u.gopee.cf/yhhpp/e7e)
+### [大纪元高速入口](https://a1.n2remote.com/yhhpp/e7e)
 
-### [退党网高速入口](https://8u.gopee.cf/arrw/e8e)
+### [退党网高速入口](https://a1.n2remote.com/arrw/e8e)
 
-### [明慧网高速入口](https://8u.gopee.cf/urbb/e3b)
+### [明慧网高速入口](https://a1.n2remote.com/urbb/e3b)
 
-### [阿波罗高速入口](https://8u.gopee.cf/asop/e13a)
+### [阿波罗高速入口](https://a1.n2remote.com/asop/e13a)
 
-### [看中国高速入口](https://8u.gopee.cf/aaker/y11n)
+### [看中国高速入口](https://a1.n2remote.com/aaker/y11n)
 
-### [美国之音高速入口](https://8u.gopee.cf/nnkl/e18m)
+### [美国之音高速入口](https://a1.n2remote.com/nnkl/e18m)
 
 ***
 
