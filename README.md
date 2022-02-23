@@ -20,9 +20,9 @@
 
 
 
-### [聚缘阁视频网站](https://v11.2324.workers.dev/)
+### [聚缘阁视频网站](https://va4336.baop.workers.dev)
 
-### [聚缘阁禁闻导航](https://d56.2324.workers.dev)
+### [聚缘阁禁闻导航](https://dh66584.baop.workers.dev)
 
 ### [动态网加密入口](https://8u.gopee.cf/dhott/u444p)
 
