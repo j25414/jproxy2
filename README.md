@@ -20,7 +20,7 @@
 
 
 
-### [聚缘阁视频网站](https://va4336.baop.workers.dev)
+### [聚缘阁视频网站](https://v224.jare.workers.dev/)
 
 ### [聚缘阁禁闻导航](https://dh66584.baop.workers.dev)
 
