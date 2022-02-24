@@ -26,9 +26,9 @@
 
 ### [动态网加密入口](https://81.vcsse.cf/duutt/u444p)
 
-### [无界网加密入口](https://81.vcsse.cf/abbru/n12a)
+### [无界网加密入口](https://82.vcsse.cf/abbru/n12a)
 
-### [新唐人高速入口](https://81.vcsse.cf/morrt/a5r)
+### [新唐人高速入口](https://83.vcsse.cf/morrt/a5r)
 
 ### [大纪元高速入口](https://81.vcsse.cf/yuup/e7e)
 
