@@ -20,9 +20,9 @@
 
 
 
-### [聚缘阁视频网站](https://v224.jare.workers.dev/)
+### [聚缘阁视频网站](https://v3.fmrb1.cf)
 
-### [聚缘阁禁闻导航](https://dh66584.baop.workers.dev)
+### [聚缘阁禁闻导航](https://d3.ebra7.gq/)
 
 ### [动态网加密入口](https://hgg.ebra5.ga/duutt/u444p)
 
