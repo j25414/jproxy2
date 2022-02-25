@@ -20,7 +20,7 @@
 
 
 
-### [聚缘阁视频网站](https://v3.fmrb1.cf)
+### [聚缘阁视频网站](https://vvg-breeze-7d70.svnpgyiu.workers.dev)
 
 ### [聚缘阁禁闻导航](https://d3.ebra7.gq/)
 
