@@ -40,7 +40,7 @@
 
 ### [看中国高速入口](https://88u.hyyr5.ml/avvver/b11n)
 
-### [美国之音高速入口](https://88u.hyyr5.ml/nnewwl/l18m)
+### [美国之音高速入口](https://88u.hyyr5.ml/nnewwl/tl18m)
 ***
 
 
