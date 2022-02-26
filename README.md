@@ -24,24 +24,23 @@
 
 ### [聚缘阁禁闻导航](https://d3.ebra7.gq/)
 
-### [动态网加密入口](https://668.hmio5.cf/duutt/u444p)
+### [动态网加密入口](https://88u.hyyr5.ml/deett/u4555p)
 
-### [无界网加密入口](https://668.hmio5.cf/abbru/n12a)
+### [无界网加密入口](https://88u.hyyr5.ml/aeeu/r12a)
 
-### [新唐人高速入口](https://668.hmio5.cf/morrt/a5r)
+### [新唐人高速入口](https://88u.hyyr5.ml/moeert/rb5r)
 
-### [大纪元高速入口](https://668.hmio5.cf/yuup/e7e)
+### [大纪元高速入口](https://88u.hyyr5.ml/yvvv/r7e)
 
-### [退党网高速入口](https://668.hmio5.cf/akkkw/e8e)
+### [退党网高速入口](https://88u.hyyr5.ml/akvvkw/g8e)
 
-### [明慧网高速入口](https://668.hmio5.cf/urtb/e3b)
+### [明慧网高速入口](https://88u.hyyr5.ml/uvvvb/n3b)
 
-### [阿波罗高速入口](https://668.hmio5.cf/aso5p/e13a)
+### [阿波罗高速入口](https://88u.hyyr5.ml/asvvvp/o13a)
 
-### [看中国高速入口](https://668.hmio5.cf/aa5ker/y11n)
+### [看中国高速入口](https://88u.hyyr5.ml/avvver/b11n)
 
-### [美国之音高速入口](https://668.hmio5.cf/nn3kl/e18m)
-
+### [美国之音高速入口](https://88u.hyyr5.ml/nnewwl/l18m)
 ***
 
 
