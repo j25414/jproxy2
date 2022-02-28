@@ -24,23 +24,23 @@
 
 ### [聚缘阁禁闻导航](https://d3.ebra7.gq/)
 
-### [动态网加密入口](https://4r.gsrre.tk/duyytt/t444p)
+### [动态网加密入口](https://88.aewv1.ga/deett/u45565p)
 
-### [无界网加密入口](https://4r.gsrre.tk/avvru/n12t)
+### [无界网加密入口](https://88.aewv1.ga/aeeu/n12a)
 
-### [新唐人高速入口](https://4r.gsrre.tk/ooort/a5t)
+### [新唐人高速入口](https://88.aewv1.ga/moeert/cb5r)
 
-### [大纪元高速入口](https://4r.gsrre.tk/yeep/e7b)
+### [大纪元高速入口](https://88.aewv1.ga/yvvv/r7c)
 
-### [退党网高速入口](https://4r.gsrre.tk/akttw/w8e)
+### [退党网高速入口](https://88.aewv1.ga/akvvkw/g8c)
 
-### [明慧网高速入口](https://4r.gsrre.tk/utttb/e3w)
+### [明慧网高速入口](https://88.aewv1.ga/uvvvb/n3c)
 
-### [阿波罗高速入口](https://4r.gsrre.tk/aso5p/p13a)
+### [阿波罗高速入口](https://88.aewv1.ga/asvvvp/c13a)
 
-### [看中国高速入口](https://4r.gsrre.tk/aa5ker/p11n)
+### [看中国高速入口](https://88.aewv1.ga/avvver/c11n)
 
-### [美国之音高速入口](https://4r.gsrre.tk/nn3kl/y18m)
+### [美国之音高速入口](https://88.aewv1.ga/nnewwl/cl18m)
 
 ***
 
