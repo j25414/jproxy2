@@ -22,7 +22,7 @@
 
 ### [聚缘阁视频网站](https://aq3.6yyu.gq)
 
-### [聚缘阁禁闻导航](https://d36.aewv1.ml/
+### [聚缘阁禁闻导航](https://d36.aewv1.ml/)
 
 ### [动态网加密入口](https://88.421r.ga/deertt/u45565p)
 
