@@ -20,9 +20,9 @@
 
 
 
-### [聚缘阁视频网站](https://vvg-breeze-7d70.svnpgyiu.workers.dev)
+### [聚缘阁视频网站](https://aq3.6yyu.gq)
 
-### [聚缘阁禁闻导航](https://d3.ebra7.gq/)
+### [聚缘阁禁闻导航](https://d36.aewv1.ml/
 
 ### [动态网加密入口](https://88.421r.ga/deertt/u45565p)
 
