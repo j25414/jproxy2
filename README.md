@@ -24,23 +24,24 @@
 
 ### [聚缘阁禁闻导航](https://d3.ebra7.gq/)
 
-### [动态网加密入口](https://88.aewv1.ga/deett/u45565p)
+### [动态网加密入口](https://88.421r.ga/deertt/u45565p)
 
-### [无界网加密入口](https://88.aewv1.ga/aeeu/n12a)
+### [无界网加密入口](https://88.421r.ga/aeeu/r12a)
 
-### [新唐人高速入口](https://88.aewv1.ga/moeert/cb5r)
+### [新唐人高速入口](https://88.421r.ga/moeert/r5r)
 
-### [大纪元高速入口](https://88.aewv1.ga/yvvv/r7c)
+### [大纪元高速入口](https://88.421r.ga/yvvv/b7c)
 
-### [退党网高速入口](https://88.aewv1.ga/akvvkw/g8c)
+### [退党网高速入口](https://88.421r.ga/aevvkw/b8c)
 
-### [明慧网高速入口](https://88.aewv1.ga/uvvvb/n3c)
+### [明慧网高速入口](https://88.421r.ga/uveeb/n3c)
 
-### [阿波罗高速入口](https://88.aewv1.ga/asvvvp/c13a)
+### [阿波罗高速入口](https://88.421r.ga/asnnp/c13a)
 
-### [看中国高速入口](https://88.aewv1.ga/avvver/c11n)
+### [看中国高速入口](https://88.421r.ga/accer/c11n)
 
-### [美国之音高速入口](https://88.aewv1.ga/nnewwl/cl18m)
+### [美国之音高速入口](https://88.421r.ga/nneewwl/cl18m)
+
 
 ***
 
