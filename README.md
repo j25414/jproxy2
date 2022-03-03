@@ -40,7 +40,7 @@
 
 ### [看中国高速入口](https://88u.baowd.tk/accer/c11n)
 
-### [美国之音高速入口](https://88u.baowd.tk/noewwl/cl18m)
+### [美国之音高速入口](https://88u.baowd.tk/noewwl/c18m)
 
 ***
 
