@@ -20,9 +20,9 @@
 
 
 
-### [聚缘阁视频网站](https://aq3.6yyu.gq)
+### [聚缘阁视频网站](https://va3.hyyui.gq)
 
-### [聚缘阁禁闻导航](https://d36.aewv1.ml/)
+### [聚缘阁禁闻导航](https://d5.jbcw1.ga/)
 
 ### [动态网加密入口](https://88u.baowd.tk/jjttt/u45565p)
 
