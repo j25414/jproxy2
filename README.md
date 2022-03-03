@@ -24,23 +24,23 @@
 
 ### [聚缘阁禁闻导航](https://d36.aewv1.ml/)
 
-### [动态网加密入口](https://8y.baowd.cf/duyytt/t444p)
+### [动态网加密入口](https://88u.baowd.tk/jjttt/u45565p)
 
-### [无界网加密入口](https://8y.baowd.cf/abbu/n12t)
+### [无界网加密入口](https://88u.baowd.tk/auuuu/r12a)
 
-### [新唐人高速入口](https://8y.baowd.cf/oofft/a5t)
+### [新唐人高速入口](https://88u.baowd.tk/vvvrt/r5r)
 
-### [大纪元高速入口](https://8y.baowd.cf/yyyye/e7b)
+### [大纪元高速入口](https://88u.baowd.tk/yvee/b7c)
 
-### [退党网高速入口](https://8y.baowd.cf/akccc/w8e)
+### [退党网高速入口](https://88u.baowd.tk/aeekw/b8c)
 
-### [明慧网高速入口](https://8y.baowd.cf/utbbbb/e3w)
+### [明慧网高速入口](https://88u.baowd.tk/uvnnb/n3c)
 
-### [阿波罗高速入口](https://8y.baowd.cf/acccs/p13a)
+### [阿波罗高速入口](https://88u.baowd.tk/aaanp/c13a)
 
-### [看中国高速入口](https://8y.baowd.cf/abbbr/p11n)
+### [看中国高速入口](https://88u.baowd.tk/accer/c11n)
 
-### [美国之音高速入口](https://8y.baowd.cf/nngg/y18m)
+### [美国之音高速入口](https://88u.baowd.tk/noewwl/cl18m)
 
 ***
 
