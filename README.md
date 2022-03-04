@@ -24,23 +24,23 @@
 
 ### [聚缘阁禁闻导航](https://d5.jbcw1.ga/)
 
-### [动态网加密入口](https://8p.aewa8.cf/jjttt/u45565p)
+### [动态网加密入口](https://g4.oopu.tk/gtttt/t444p)
 
-### [无界网加密入口](https://8p.aewa8.cf/auuuu/r12a)
+### [无界网加密入口](https://g4.oopu.tk/bbbu/n12t)
 
-### [新唐人高速入口](https://8p.aewa8.cf/vvvrt/r5r)
+### [新唐人高速入口](https://g4.oopu.tk/obbbt/a5t)
 
-### [大纪元高速入口](https://8p.aewa8.cf/yvee/b7c)
+### [大纪元高速入口](https://g4.oopu.tk/vvvve/e7b)
 
-### [退党网高速入口](https://8p.aewa8.cf/aeekw/b8c)
+### [退党网高速入口](https://g4.oopu.tk/vvvvc/w8e)
 
-### [明慧网高速入口](https://8p.aewa8.cf/uvnnb/n3c)
+### [明慧网高速入口](https://g4.oopu.tk/ueeebb/e3w)
 
-### [阿波罗高速入口](https://8p.aewa8.cf/aaanp/c13a)
+### [阿波罗高速入口](https://g4.oopu.tk/aczzzs/p13a)
 
-### [看中国高速入口](https://8p.aewa8.cf/accer/c11n)
+### [看中国高速入口](https://g4.oopu.tk/azzzr/p11n)
 
-### [美国之音高速入口](https://8p.aewa8.cf/noewwl/t18m)
+### [美国之音高速入口](https://g4.oopu.tk/rrrrg/y18m)
 
 ***
 
