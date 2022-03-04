@@ -24,23 +24,24 @@
 
 ### [聚缘阁禁闻导航](https://d5.jbcw1.ga/)
 
-### [动态网加密入口](https://c44.ebra2.gq/duyytt/t444p)
+### [动态网加密入口](https://8p.aewa8.cf/jjttt/u45565p)
 
-### [无界网加密入口](https://c44.ebra2.gq/abbu/n12t)
+### [无界网加密入口](https://8p.aewa8.cf/auuuu/r12a)
 
-### [新唐人高速入口](https://c44.ebra2.gq/oofft/a5t)
+### [新唐人高速入口](https://8p.aewa8.cf/vvvrt/r5r)
 
-### [大纪元高速入口](https://c44.ebra2.gq/yyyye/e7b)
+### [大纪元高速入口](https://8p.aewa8.cf/yvee/b7c)
 
-### [退党网高速入口](https://c44.ebra2.gq/akccc/w8e)
+### [退党网高速入口](https://8p.aewa8.cf/aeekw/b8c)
 
-### [明慧网高速入口](https://c44.ebra2.gq/utbbbb/e3w)
+### [明慧网高速入口](https://8p.aewa8.cf/uvnnb/n3c)
 
-### [阿波罗高速入口](https://c44.ebra2.gq/acccs/p13a)
+### [阿波罗高速入口](https://8p.aewa8.cf/aaanp/c13a)
 
-### [看中国高速入口](https://c44.ebra2.gq/abbbr/p11n)
+### [看中国高速入口](https://8p.aewa8.cf/accer/c11n)
 
-### [美国之音高速入口](https://c44.ebra2.gq/nngg/y18m)
+### [美国之音高速入口](https://8p.aewa8.cf/noewwl/t18m)
+
 ***
 
 
