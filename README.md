@@ -22,7 +22,7 @@
 
 ### [聚缘阁视频网站](https://123.ebra3.cf/)
 
-### [聚缘阁禁闻导航](https://d5.jbcw1.ga/)
+### [聚缘阁禁闻导航](https://dh8.pbyyu.cf)
 
 ### [动态网加密入口](https://g4.oopu.tk/gtttt/t444p)
 
