@@ -20,7 +20,7 @@
 
 
 
-### [聚缘阁视频网站](https://123.ebra3.cf/)
+### [聚缘阁视频网站](https://y6.oyyui.ga/)
 
 ### [聚缘阁禁闻导航](https://dh8.pbyyu.cf)
 
