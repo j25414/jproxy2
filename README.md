@@ -22,7 +22,7 @@
 
 ### [聚缘阁视频网站](https://y6.oyyui.ga/)
 
-### [聚缘阁禁闻导航](https://dh8.pbyyu.cf)
+### [聚缘阁禁闻导航](https://ddively-tooth-5b62.gi6vi15d.workers.dev)
 
 ### [动态网加密入口](https://333q.appu9.tk/vvvvtt/t444p)
 
