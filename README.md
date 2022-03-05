@@ -24,23 +24,24 @@
 
 ### [聚缘阁禁闻导航](https://ddively-tooth-5b62.gi6vi15d.workers.dev)
 
-### [动态网加密入口](https://ddaae.herokuapp.com/veevtt/t444p)
+### [动态网加密入口](https://pro-damp-union-9580.gi6vi15d.workers.dev/veevtt/t444p)
 
-### [无界网加密入口](https://ddaae.herokuapp.com/beeeu/n12t)
+### [无界网加密入口](https://pro-damp-union-9580.gi6vi15d.workers.dev/beeeu/n12t)
 
-### [新唐人高速入口](https://ddaae.herokuapp.com/ocffft/a5t)
+### [新唐人高速入口](https://pro-damp-union-9580.gi6vi15d.workers.dev/ocffft/a5t)
 
-### [大纪元高速入口](https://ddaae.herokuapp.com/ffvrrre/e7b)
+### [大纪元高速入口](https://pro-damp-union-9580.gi6vi15d.workers.dev/ffvrrre/e7b)
 
-### [退党网高速入口](https://ddaae.herokuapp.com/rrbbc/w8e)
+### [退党网高速入口](https://pro-damp-union-9580.gi6vi15d.workers.dev/rrbbc/w8e)
 
-### [明慧网高速入口](https://ddaae.herokuapp.com/rcccbb/e3w)
+### [明慧网高速入口](https://pro-damp-union-9580.gi6vi15d.workers.dev/rcccbb/e3w)
 
-### [阿波罗高速入口](https://ddaae.herokuapp.com/wwws/p13a)
+### [阿波罗高速入口](https://pro-damp-union-9580.gi6vi15d.workers.dev/wwws/p13a)
 
-### [看中国高速入口](https://ddaae.herokuapp.com/qqqur/p11n)
+### [看中国高速入口](https://pro-damp-union-9580.gi6vi15d.workers.dev/qqqur/p11n)
 
-### [美国之音高速入口](https://ddaae.herokuapp.com/qqqug/y18m)
+### [美国之音高速入口](https://pro-damp-union-9580.gi6vi15d.workers.dev/qqqug/y18m)
+
 
 
 ***
