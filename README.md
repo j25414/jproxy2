@@ -20,7 +20,7 @@
 
 
 
-### [聚缘阁视频网站](https://y6.oyyui.ga/)
+### [聚缘阁视频网站](https://vd-river-c3b7.d54413.workers.dev/)
 
 ### [聚缘阁禁闻导航](https://ddively-tooth-5b62.gi6vi15d.workers.dev)
 
