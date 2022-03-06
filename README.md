@@ -20,27 +20,27 @@
 
 
 
-### [聚缘阁视频网站](https://vd-river-c3b7.d54413.workers.dev/)
+### [聚缘阁视频网站](https://bitbucket.org/ewwmakye/mo/src/master/)
 
-### [聚缘阁禁闻导航](https://ddively-tooth-5b62.gi6vi15d.workers.dev)
+### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/)
 
-### [动态网加密入口](https://s44.ccddr.tk/cuuu/y444p)
+### [动态网加密入口](https://bitbucket.org/ewwmakye/mo/src/master/)
 
-### [无界网加密入口](https://s44.ccddr.tk/buuuu/u12t)
+### [无界网加密入口](https://bitbucket.org/ewwmakye/mo/src/master/)
 
-### [新唐人高速入口](https://s44.ccddr.tk/dkkkk/u5t)
+### [新唐人高速入口](https://bitbucket.org/ewwmakye/mo/src/master/)
 
-### [大纪元高速入口](https://s44.ccddr.tk/fyyyy/d7t)
+### [大纪元高速入口](https://bitbucket.org/ewwmakye/mo/src/master/)
 
-### [退党网高速入口](https://s44.ccddr.tk/reee/d8t)
+### [退党网高速入口](https://bitbucket.org/ewwmakye/mo/src/master/)
 
-### [明慧网高速入口](https://s44.ccddr.tk/rwwww/d3e)
+### [明慧网高速入口](https://bitbucket.org/ewwmakye/mo/src/master/)
 
-### [阿波罗高速入口](https://s44.ccddr.tk/wooo/e13a)
+### [阿波罗高速入口](https://bitbucket.org/ewwmakye/mo/src/master/)
 
-### [看中国高速入口](https://s44.ccddr.tk/geeee/a11n)
+### [看中国高速入口](https://bitbucket.org/ewwmakye/mo/src/master/)
 
-### [美国之音高速入口](https://s44.ccddr.tk/qyyyy/a18m)
+### [美国之音高速入口](https://bitbucket.org/ewwmakye/mo/src/master/)
 
 
 ***
