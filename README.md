@@ -21,7 +21,7 @@
 
 
 
-### [聚缘阁视频网站](https://vy-silence-309e.tck3vfna1546.workers.dev)
+### [聚缘阁视频网站](https://v3.yyrru.ml/)
 
 ### [聚缘阁禁闻导航](https://dh-resonance-54c6.tck3vfna1546.workers.dev)
 
