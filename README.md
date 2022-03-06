@@ -23,25 +23,23 @@
 
 ### [聚缘阁视频网站](https://v3.yyrru.ml/)
 
-### [聚缘阁禁闻导航](https://tight-king-ed90.n8569.workers.dev)
+### [动态网高速入口](https://8u.frtty.cf/crru/y444p)
 
-### [动态网高速入口](https://888a.yyrru.tk/cuuu/y444p)
+### [无界网高速入口](https://8u.frtty.cf/aauuu/u12t)
 
-### [无界网高速入口](https://888a.yyrru.tk/buuuu/u12t)
+### [新唐人高速入口](https://8u.frtty.cf/xxkkk/u5t)
 
-### [新唐人高速入口](https://888a.yyrru.tk/dkkkk/u5t)
+### [大纪元高速入口](https://8u.frtty.cf/xxyyy/d7t)
 
-### [大纪元高速入口](https://888a.yyrru.tk/fyyyy/d7t)
+### [退党网高速入口](https://8u.frtty.cf/xxee/d8t)
 
-### [退党网高速入口](https://888a.yyrru.tk/reee/d8t)
+### [明慧网高速入口](https://8u.frtty.cf/xxwww/d3e)
 
-### [明慧网高速入口](https://888a.yyrru.tk/rwwww/d3e)
+### [阿波罗高速入口](https://8u.frtty.cf/xxoo/e13a)
 
-### [阿波罗高速入口](https://888a.yyrru.tk/wooo/e13a)
+### [看中国高速入口](https://8u.frtty.cf/xxeee/a11n)
 
-### [看中国高速入口](https://888a.yyrru.tk/geeee/a11n)
-
-### [美国之音高速入口](https://888a.yyrru.tk/qyyyy/a18m)
+### [美国之音高速入口](https://8u.frtty.cf/xxyyy/a18m)
 
 
 ***
