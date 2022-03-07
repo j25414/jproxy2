@@ -21,7 +21,7 @@
 
 
 
-### [聚缘阁视频网站](https://v3.yyrru.ml/)
+### [聚缘阁视频网站](https://v4.getop.gq/)
 
 ### [动态网高速入口](https://88v.frtty.tk/jjcbc/u45565p)
 
