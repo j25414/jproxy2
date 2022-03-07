@@ -23,24 +23,23 @@
 
 ### [聚缘阁视频网站](https://v4.getop.gq/)
 
-### [动态网高速入口](https://8u.domac.cf/jjcbc/u45565p)
+### [动态网高速入口](https://88y.domhy.ml/creee/y444p)
 
-### [无界网高速入口](https://8u.domac.cf/yybbb/r12a)
+### [无界网高速入口](https://88y.domhy.ml/aauuu/u12t)
 
-### [新唐人高速入口](https://8u.domac.cf/ccmmm/r5r)
+### [新唐人高速入口](https://88y.domhy.ml/yyyyk/u5t)
 
-### [大纪元高速入口](https://8u.domac.cf/ymmm/b7c)
+### [大纪元高速入口](https://88y.domhy.ml/uuuuuy/d7t)
 
-### [退党网高速入口](https://8u.domac.cf/ffwww/b8c)
+### [退党网高速入口](https://88y.domhy.ml/xxee/d8t)
 
-### [明慧网高速入口](https://8u.domac.cf/cgggff/n3c)
+### [明慧网高速入口](https://88y.domhy.ml/xxwww/d3e)
 
-### [阿波罗高速入口](https://8u.domac.cf/ccceee/c13a)
+### [阿波罗高速入口](https://88y.domhy.ml/xxoo/e13a)
 
-### [看中国高速入口](https://8u.domac.cf/nnnqqq/c11n)
+### [看中国高速入口](https://88y.domhy.ml/xxeee/a11n)
 
-### [美国之音高速入口](https://8u.domac.cf/ccmml/t18m)
-
+### [美国之音高速入口](https://88y.domhy.ml/xxyyy/a18m)
 
 ***
 
