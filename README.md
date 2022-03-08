@@ -23,23 +23,23 @@
 
 ### [聚缘阁视频网站](https://e3.uuuny.tk//)
 
-### [动态网高速入口](https://8p.haoel.tk/jjcbc/u45565p)
+### [动态网高速入口](https://aa2.hccce.gq/creee/y444p)
 
-### [无界网高速入口](https://8p.haoel.tk/yybbb/r12a)
+### [无界网高速入口](https://aa1.hccce.gq/aauuu/u12t)
 
-### [新唐人高速入口](https://8p.haoel.tk/ccmmm/r5r)
+### [新唐人高速入口](https://aa1.hccce.gq/yyyyk/u5t)
 
-### [大纪元高速入口](https://8p.haoel.tk/ymmm/b7c)
+### [大纪元高速入口](https://aa1.hccce.gq/uuuuuy/d7t)
 
-### [退党网高速入口](https://8p.haoel.tk/ffwww/b8c)
+### [退党网高速入口](https://aa1.hccce.gq/xxee/d8t)
 
-### [明慧网高速入口](https://8p.haoel.tk/cgggff/n3c)
+### [明慧网高速入口](https://aa1.hccce.gq/xxwww/d3e)
 
-### [阿波罗高速入口](https://8p.haoel.tk/ccceee/c13a)
+### [阿波罗高速入口](https://aa1.hccce.gq/xxoo/e13a)
 
-### [看中国高速入口](https://8p.haoel.tk/nnnqqq/c11n)
+### [看中国高速入口](https://aa1.hccce.gq/xxeee/a11n)
 
-### [美国之音高速入口](https://8p.haoel.tk/ccmml/t18m)
+### [美国之音高速入口](https://aa1.hccce.gq/xxyyy/a18m)
 
 
 ***
