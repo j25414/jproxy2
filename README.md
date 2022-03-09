@@ -23,23 +23,23 @@
 
 ### [聚缘阁视频网站](https://v3.bfttu.ga/)
 
-### [动态网高速入口](https://88u.bfttu.tk/creee/y444p)
+### [动态网高速入口](https://rt3.yuuoo.cf/creee/y444p)
 
-### [无界网高速入口](https://88u.bfttu.tk/acccuu/u12t)
+### [无界网高速入口](https://rt3.yuuoo.cf/acccuu/u12t)
 
-### [新唐人高速入口](https://88u.bfttu.tk/yyyyk/u5t)
+### [新唐人高速入口](https://rt3.yuuoo.cf/yyyyk/u5t)
 
-### [大纪元高速入口](https://88u.bfttu.tk/uuuuuy/d7t)
+### [大纪元高速入口](https://rt3.yuuoo.cf/uuuuuy/d7t)
 
-### [退党网高速入口](https://88u.bfttu.tk/xxee/d8t)
+### [退党网高速入口](https://rt3.yuuoo.cf/xxee/d8t)
 
-### [明慧网高速入口](https://88u.bfttu.tk/xxwww/d3e)
+### [明慧网高速入口](https://rt3.yuuoo.cf/xxwww/d3e)
 
-### [阿波罗高速入口](https://88u.bfttu.tk/xxoo/e13a)
+### [阿波罗高速入口](https://rt3.yuuoo.cf/xxoo/e13a)
 
-### [看中国高速入口](https://88u.bfttu.tk/xtte/a11n)
+### [看中国高速入口](https://rt3.yuuoo.cf/xtte/a11n)
 
-### [美国之音高速入口](https://88u.bfttu.tk/cccyy/a18m)
+### [美国之音高速入口](https://rt3.yuuoo.cf/cccyy/a18m)
 
 ***
 
