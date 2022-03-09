@@ -21,7 +21,7 @@
 
 
 
-### [聚缘阁视频网站](https://e3.uuuny.tk//)
+### [聚缘阁视频网站](https://v3.bfttu.ga/)
 
 ### [动态网高速入口](https://88u.bfttu.tk/creee/y444p)
 
