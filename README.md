@@ -21,7 +21,7 @@
 
 
 
-### [聚缘阁视频网站](https://vf3.vaaae.ml/k)
+### [聚缘阁视频网站](https://8k.aabtu.tk)
 
 ### [动态网高速入口](https://89.swewg.tk/rree/h444p)
 
