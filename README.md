@@ -21,7 +21,7 @@
 
 
 
-### [聚缘阁视频网站](https://g3.hygtr.ml)
+### [聚缘阁视频网站](https://23.feeer.tk)
 
 ### [动态网高速入口](https://8i.feeep.cf/creee/t444p)
 
