@@ -23,24 +23,23 @@
 
 ### [聚缘阁视频网站](https://23.feeer.tk)
 
-### [动态网高速入口](https://8i.feeep.cf/creee/t444p)
+### [动态网高速入口](https://89.swewg.tk/rree/h444p)
 
-### [无界网高速入口](https://8i.feeep.cf/acccuu/g12t)
+### [无界网高速入口](https://89.swewg.tk/ahhcuu/h12t)
 
-### [新唐人高速入口](https://8i.feeep.cf/ycccck/u5t)
+### [新唐人高速入口](https://89.swewg.tk/mmmmck/h5t)
 
-### [大纪元高速入口](https://8i.feeep.cf/ucccuy/g7t)
+### [大纪元高速入口](https://89.swewg.tk/uufuuy/h7t)
 
-### [退党网高速入口](https://8i.feeep.cf/xxee/d8g)
+### [退党网高速入口](https://89.swewg.tk/ddooe/d8h)
 
-### [明慧网高速入口](https://8i.feeep.cf/xxwww/d6g)
+### [明慧网高速入口](https://89.swewg.tk/dddww/d6v)
 
-### [阿波罗高速入口](https://8i.feeep.cf/xxgoo/g13a)
+### [阿波罗高速入口](https://89.swewg.tk/ddoo/v13a)
 
-### [看中国高速入口](https://8i.feeep.cf/xttge/g11n)
+### [看中国高速入口](https://89.swewg.tk/dddge/d11n)
 
-### [美国之音高速入口](https://8i.feeep.cf/ccgggy/g18m)
-
+### [美国之音高速入口](https://89.swewg.tk/ccddgy/d18m)
 
 ***
 
