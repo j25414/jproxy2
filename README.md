@@ -23,23 +23,23 @@
 
 ### [聚缘阁视频网站](https://8k.aabtu.tk)
 
-### [动态网高速入口](https://889.e343t.ml/rreue/h8864p)
+### [动态网高速入口](https://4t.geegh.tk/creee/t444p)
 
-### [无界网高速入口](https://889.e343t.ml/gggguu/h12t)
+### [无界网高速入口](https://4t.geegh.tk/acccuu/g12t)
 
-### [新唐人高速入口](https://889.e343t.ml/mcccd/h5t)
+### [新唐人高速入口](https://4t.geegh.tk/ycccck/u5t)
 
-### [大纪元高速入口](https://889.e343t.ml/uufuuy/h7t)
+### [大纪元高速入口](https://4t.geegh.tk/ucccuy/g7t)
 
-### [退党网高速入口](https://889.e343t.ml/ddooe/d8h)
+### [退党网高速入口](https://4t.geegh.tk/xxee/d8g)
 
-### [明慧网高速入口](https://889.e343t.ml/dddww/d6v)
+### [明慧网高速入口](https://4t.geegh.tk/xxwww/d6g)
 
-### [阿波罗高速入口](https://889.e343t.ml/ddoo/v13a)
+### [阿波罗高速入口](https://4t.geegh.tk/xxgoo/g13a)
 
-### [看中国高速入口](https://889.e343t.ml/dddge/d11n)
+### [看中国高速入口](https://4t.geegh.tk/xttge/g11n)
 
-### [美国之音高速入口](https://889.e343t.ml/ccddgy/d18m)
+### [美国之音高速入口](https://4t.geegh.tk/ccgggy/g18m)
 
 ***
 
