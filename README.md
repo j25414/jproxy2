@@ -25,23 +25,23 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://u8k.aoope.cf/creee/y4774p)
+### [动态网高速入口](https://y7.aotta.tk/creee/y444p)
 
-### [无界网高速入口](https://u8k.aoope.cf/anvuu/y12t)
+### [无界网高速入口](https://y7.aotta.tk/anvuu/y12t)
 
-### [新唐人高速入口](https://u8k.aoope.cf/ycccck/m5t)
+### [新唐人高速入口](https://y7.aotta.tk/ycccck/m5t)
 
-### [大纪元高速入口](https://u8k.aoope.cf/ucvvuy/m7t)
+### [大纪元高速入口](https://y7.aotta.tk/ucvvuy/m7t)
 
-### [退党网高速入口](https://u8k.aoope.cf/xeeee/d8m)
+### [退党网高速入口](https://y7.aotta.tk/xeeee/d8m)
 
-### [明慧网高速入口](https://u8k.aoope.cf/xxwww/e6m)
+### [明慧网高速入口](https://y7.aotta.tk/xxwww/e6m)
 
-### [阿波罗高速入口](https://u8k.aoope.cf/xxgoo/m13a)
+### [阿波罗高速入口](https://y7.aotta.tk/xxgoo/m13a)
 
-### [看中国高速入口](https://u8k.aoope.cf/xttege/m11n)
+### [看中国高速入口](https://y7.aotta.tk/xttege/m11n)
 
-### [美国之音高速入口](https://u8k.aoope.cf/cbbggy/m18m)
+### [美国之音高速入口](https://y7.aotta.tk/cbbggy/m18m)
 
 ***
 
