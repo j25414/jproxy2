@@ -25,23 +25,23 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://4r.valome.ga/cffee/u44774p)
+### [动态网高速入口](https://8u.kukua.ga/creee/y444p)
 
-### [无界网高速入口](https://4r.valome.ga/accuu/u12t)
+### [无界网高速入口](https://8u.kukua.ga/anvuu/y12t)
 
-### [新唐人高速入口](https://4r.valome.ga/jjjck/t5t)
+### [新唐人高速入口](https://8u.kukua.ga/ycccck/m5t)
 
-### [大纪元高速入口](https://4r.valome.ga/uccvv/g7t)
+### [大纪元高速入口](https://8u.kukua.ga/ucvvuy/m7t)
 
-### [退党网高速入口](https://4r.valome.ga/xxeew/d8g)
+### [退党网高速入口](https://8u.kukua.ga/xeeee/d8m)
 
-### [明慧网高速入口](https://4r.valome.ga/xxaaaw/e6g)
+### [明慧网高速入口](https://8u.kukua.ga/xxwww/e6m)
 
-### [阿波罗高速入口](https://4r.valome.ga/xbbbb/e13a)
+### [阿波罗高速入口](https://8u.kukua.ga/xxgoo/m13a)
 
-### [看中国高速入口](https://4r.valome.ga/xttge/e11n)
+### [看中国高速入口](https://8u.kukua.ga/xttege/m11n)
 
-### [美国之音高速入口](https://4r.valome.ga/ccgggy/e18m)
+### [美国之音高速入口](https://8u.kukua.ga/cbbggy/m18m)
 
 ***
 
