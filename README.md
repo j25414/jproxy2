@@ -21,7 +21,7 @@
 
 
 
-### [聚缘阁视频网站](https://3e.finna.tk/)
+### [聚缘阁视频网站](https://v4.dawua.tk/)
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
