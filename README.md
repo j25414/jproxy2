@@ -25,23 +25,23 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://7u.rotec.ga/creee/t444p)
+### [动态网高速入口](https://89.fincc.ga/creee/t444p)
 
-### [无界网高速入口](https://7u.rotec.ga/acccuu/g12t)
+### [无界网高速入口](https://89.fincc.ga/acccuu/g12t)
 
-### [新唐人高速入口](https://7u.rotec.ga/ycccck/u5t)
+### [新唐人高速入口](https://89.fincc.ga/ycccck/u5t)
 
-### [大纪元高速入口](https://7u.rotec.ga/ucccuy/g7t)
+### [大纪元高速入口](https://89.fincc.ga/ucccuy/g7t)
 
-### [退党网高速入口](https://7u.rotec.ga/xxee/d8g)
+### [退党网高速入口](https://89.fincc.ga/xxee/d8g)
 
-### [明慧网高速入口](https://7u.rotec.ga/xxwww/d6g)
+### [明慧网高速入口](https://89.fincc.ga/xxwww/d6g)
 
-### [阿波罗高速入口](https://7u.rotec.ga/xxgoo/g13a)
+### [阿波罗高速入口](https://89.fincc.ga/xxgoo/g13a)
 
-### [看中国高速入口](https://7u.rotec.ga/xttge/g11n)
+### [看中国高速入口](https://89.fincc.ga/xttge/g11n)
 
-### [美国之音高速入口](https://7u.rotec.ga/ccgggy/g18m)
+### [美国之音高速入口](https://89.fincc.ga/ccgggy/g18m)
 
 ***
 
