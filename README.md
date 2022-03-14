@@ -25,23 +25,24 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://3r.kukua.ml/cffee/u44774p)
+### [动态网高速入口](https://2a.fincc.cf/cffee/u44774p)
 
-### [无界网高速入口](https://3r.kukua.ml/accuu/u12t)
+### [无界网高速入口](https://2a.fincc.cf/accuu/u12t)
 
-### [新唐人高速入口](https://3r.kukua.ml/jjjck/t5t)
+### [新唐人高速入口](https://2a.fincc.cf/jjjck/t5t)
 
-### [大纪元高速入口](https://3r.kukua.ml/uccvv/g7t)
+### [大纪元高速入口](https://2a.fincc.cf/uccvv/g7t)
 
-### [退党网高速入口](https://3r.kukua.ml/xxeew/d8g)
+### [退党网高速入口](https://2a.fincc.cf/xxeew/d8g)
 
-### [明慧网高速入口](https://3r.kukua.ml/xxaaaw/e6g)
+### [明慧网高速入口](https://2a.fincc.cf/xxaaaw/e6g)
 
-### [阿波罗高速入口](https://3r.kukua.ml/xbbbb/e13a)
+### [阿波罗高速入口](https://2a.fincc.cf/xbbbb/e13a)
 
-### [看中国高速入口](https://3r.kukua.ml/xttge/e11n)
+### [看中国高速入口](https://2a.fincc.cf/xttge/e11n)
 
-### [美国之音高速入口](https://3r.kukua.ml/ccgggy/e18m)
+### [美国之音高速入口](https://2a.fincc.cf/ccgggy/e18m)
+
 
 
 ***
