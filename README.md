@@ -25,23 +25,23 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://j1.aweee.tk/rreee/y444p)
+### [动态网高速入口](https://8a.wrree.ga/rreee/y444p)
 
-### [无界网高速入口](https://j1.aweee.tk/anttu/b12t)
+### [无界网高速入口](https://8a.wrree.ga/anttu/b12t)
 
-### [新唐人高速入口](https://j1.aweee.tk/vvvaak/m5b)
+### [新唐人高速入口](https://8a.wrree.ga/vvvaak/m5b)
 
-### [大纪元高速入口](https://j1.aweee.tk/aaaauy/m7b)
+### [大纪元高速入口](https://8a.wrree.ga/aaaauy/m7b)
 
-### [退党网高速入口](https://j1.aweee.tk/xnnnn/d8w)
+### [退党网高速入口](https://8a.wrree.ga/xnnnn/d8w)
 
-### [明慧网高速入口](https://j1.aweee.tk/rrrrrw/w6m)
+### [明慧网高速入口](https://8a.wrree.ga/rrrrrw/w6m)
 
-### [阿波罗高速入口](https://j1.aweee.tk/ggggoo/w13a)
+### [阿波罗高速入口](https://8a.wrree.ga/ggggoo/w13a)
 
-### [看中国高速入口](https://j1.aweee.tk/xttege/w11n)
+### [看中国高速入口](https://8a.wrree.ga/xttege/w11n)
 
-### [美国之音高速入口](https://j1.aweee.tk/ccaaay/w18m)
+### [美国之音高速入口](https://8a.wrree.ga/ccaaay/w18m)
 
 
 ***
