@@ -21,7 +21,7 @@
 
 
 
-### [聚缘阁视频网站](https://v3.valeno.ga)
+### [聚缘阁视频网站](https://12.acbbr.ga/)
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
