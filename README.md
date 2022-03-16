@@ -25,23 +25,23 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://3t.kuacc.gq/rreee/y444p)
+### [动态网高速入口](https://t5.bfaac.ga/ccssd/u44774p)
 
-### [无界网高速入口](https://3t.kuacc.gq/anttu/b12t)
+### [无界网高速入口](https://t5.bfaac.ga/sssuu/u12t)
 
-### [新唐人高速入口](https://3t.kuacc.gq/vvvaak/m5b)
+### [新唐人高速入口](https://t5.bfaac.ga/jjsssc/t5t)
 
-### [大纪元高速入口](https://3t.kuacc.gq/aaaauy/m7b)
+### [大纪元高速入口](https://t5.bfaac.ga/bbvsv/g7t)
 
-### [退党网高速入口](https://3t.kuacc.gq/xnnnn/d8w)
+### [退党网高速入口](https://t5.bfaac.ga/xssw/d8g)
 
-### [明慧网高速入口](https://3t.kuacc.gq/rrrrrw/w6m)
+### [明慧网高速入口](https://t5.bfaac.ga/ggaasw/e6g)
 
-### [阿波罗高速入口](https://3t.kuacc.gq/ggggoo/w13a)
+### [阿波罗高速入口](https://t5.bfaac.ga/xnnsn/e13a)
 
-### [看中国高速入口](https://3t.kuacc.gq/xttege/w11n)
+### [看中国高速入口](https://t5.bfaac.ga/xaasa/e11n)
 
-### [美国之音高速入口](https://3t.kuacc.gq/ccaaay/w18m)
+### [美国之音高速入口](https://t5.bfaac.ga/ssssy/e18m)
 
 ***
 
