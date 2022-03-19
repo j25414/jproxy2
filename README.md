@@ -21,7 +21,7 @@
 
 
 
-### [聚缘阁视频网站](https://q3.getaa.gq)
+### [聚缘阁视频网站](https://b.gaaet.cf)
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
