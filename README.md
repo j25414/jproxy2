@@ -21,7 +21,7 @@
 
 
 
-### [聚缘阁视频网站](https://b.gaaet.cf)
+### [聚缘阁视频网站](https://dh-glade-5337.joop.workers.dev)
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
