@@ -25,23 +25,23 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://8u.aaecf.tk/rreee/y444p)
+### [动态网高速入口](https://yovvb.ml/rreee/y444p)
 
-### [无界网高速入口](https://8u.aaecf.tk/anttu/b12t)
+### [无界网高速入口](https://yovvb.ml/anttu/b12t)
 
-### [新唐人高速入口](https://8u.aaecf.tk/vvvaak/m5b)
+### [新唐人高速入口](https://yovvb.ml/vvvaak/m5b)
 
-### [大纪元高速入口](https://8u.aaecf.tk/aaaauy/m7b)
+### [大纪元高速入口](https://yovvb.ml/aaaauy/m7b)
 
-### [退党网高速入口](https://8u.aaecf.tk/xnnnn/d8w)
+### [退党网高速入口](https://yovvb.ml/xnnnn/d8w)
 
-### [明慧网高速入口](https://8u.aaecf.tk/rrrrrw/w6m)
+### [明慧网高速入口](https://yovvb.ml/rrrrrw/w6m)
 
-### [阿波罗高速入口](https://8u.aaecf.tk/ggggoo/w13a)
+### [阿波罗高速入口](https://yovvb.ml/ggggoo/w13a)
 
-### [看中国高速入口](https://8u.aaecf.tk/xttege/w11n)
+### [看中国高速入口](https://yovvb.ml/xttege/w11n)
 
-### [美国之音高速入口](https://8u.aaecf.tk/ccaaay/w18m)
+### [美国之音高速入口](https://yovvb.ml/ccaaay/w18m)
 ***
 
 
