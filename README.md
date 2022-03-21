@@ -19,9 +19,9 @@
 一键点击 轻松翻墙
 
 
-### [新视觉视频系列](https://1r.oowwc.tk/sj.html)
+### [新视觉视频系列](https://vb.opptk.gq/sj.html)
 
-### [聚缘阁视频网站](https://1r.oowwc.tk)
+### [聚缘阁视频网站](https://vb.opptk.gq/)
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
