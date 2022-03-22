@@ -19,9 +19,9 @@
 一键点击 轻松翻墙
 
 
-### [新视觉视频系列](https://vund-bird-fcf7.baaw.workers.dev/sj.html)
+### [新视觉视频系列](https://v.maiye.ga/sj.html)
 
-### [聚缘阁视频网站](https://vund-bird-fcf7.baaw.workers.dev)
+### [聚缘阁视频网站](https://v.maiye.ga)
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
