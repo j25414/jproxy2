@@ -25,23 +25,23 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://3c.mssre.cf/ccssd/u44774p)
+### [动态网高速入口](https://8.macat.ml/ccssd/u44774p)
 
-### [无界网高速入口](https://3c.mssre.cf/sssuu/u12t)
+### [无界网高速入口](https://8.macat.ml/sssuu/u12t)
 
-### [新唐人高速入口](https://3c.mssre.cf/jjsssc/t5t)
+### [新唐人高速入口](https://8.macat.ml/jjsssc/t5t)
 
-### [大纪元高速入口](https://3c.mssre.cf/bbvsv/g7t)
+### [大纪元高速入口](https://8.macat.ml/bbvsv/g7t)
 
-### [退党网高速入口](https://3c.mssre.cf/xssw/d8g)
+### [退党网高速入口](https://8.macat.ml/xssw/d8g)
 
-### [明慧网高速入口](https://3c.mssre.cf/ggaasw/e3g)
+### [明慧网高速入口](https://8.macat.ml/ggaasw/e6g)
 
-### [阿波罗高速入口](https://3c.mssre.cf/xnnsn/e13a)
+### [阿波罗高速入口](https://8.macat.ml/xnnsn/e13a)
 
-### [看中国高速入口](https://3c.mssre.cf/xaasa/e11n)
+### [看中国高速入口](https://8.macat.ml/xaasa/e11n)
 
-### [美国之音高速入口](https://3c.mssre.cf/ssssy/e18m)
+### [美国之音高速入口](https://8.macat.ml/ssssy/e18m)
 
 ***
 
