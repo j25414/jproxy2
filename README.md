@@ -25,23 +25,23 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://8.mssre.ml/ccssd/u44774p)
+### [动态网高速入口](https://88.awecc.gq/ccssd/u44774p)
 
-### [无界网高速入口](https://8.mssre.ml/sssuu/u12t)
+### [无界网高速入口](https://88.awecc.gq/sssuu/u12t)
 
-### [新唐人高速入口](https://8.mssre.ml/jjsssc/t5t)
+### [新唐人高速入口](https://88.awecc.gq/jjsssc/t5t)
 
-### [大纪元高速入口](https://8.mssre.ml/bbvsv/g7t)
+### [大纪元高速入口](https://88.awecc.gq/bbvsv/g7t)
 
-### [退党网高速入口](https://8.mssre.ml/xssw/d8g)
+### [退党网高速入口](https://88.awecc.gq/xssw/d8g)
 
-### [明慧网高速入口](https://8.mssre.ml/ggaasw/e3g)
+### [明慧网高速入口](https://88.awecc.gq/ggaasw/e3g)
 
-### [阿波罗高速入口](https://8.mssre.ml/xnnsn/e13a)
+### [阿波罗高速入口](https://88.awecc.gq/xnnsn/e13a)
 
-### [看中国高速入口](https://8.mssre.ml/xaasa/e11n)
+### [看中国高速入口](https://88.awecc.gq/xaasa/e11n)
 
-### [美国之音高速入口](https://8.mssre.ml/ssssy/e18m)
+### [美国之音高速入口](https://88.awecc.gq/ssssy/e18m)
 
 ***
 
