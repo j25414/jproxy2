@@ -18,6 +18,7 @@
 
 一键点击 轻松翻墙
 
+### [聚缘阁禁闻导航](https://r.fwe3.ga)
 
 ### [新视觉视频系列](https://va.accte.cf/sj.html)
 
