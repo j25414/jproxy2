@@ -25,23 +25,23 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://e8.mqia1.gq/ccssd/u44774p)
+### [动态网高速入口](https://84.accte.ga/ccssd/r44774p)
 
-### [无界网高速入口](https://e8.mqia1.gq/sssuu/y12t)
+### [无界网高速入口](https://84.accte.ga/ssgg/b12t)
 
-### [新唐人高速入口](https://e8.mqia1.gq/jjsssc/b5t)
+### [新唐人高速入口](https://84.accte.ga/ggssc/w5t)
 
-### [大纪元高速入口](https://e8.mqia1.gq/bbvsv/b7t)
+### [大纪元高速入口](https://84.accte.ga/bbvgg/e7t)
 
-### [退党网高速入口](https://e8.mqia1.gq/xssw/b8g)
+### [退党网高速入口](https://84.accte.ga/xshh/b8e)
 
-### [明慧网高速入口](https://e8.mqia1.gq/ggaasw/b3g)
+### [明慧网高速入口](https://84.accte.ga/ggaasw/b3e)
 
-### [阿波罗高速入口](https://e8.mqia1.gq/xnnsn/t13a)
+### [阿波罗高速入口](https://84.accte.ga/xnnsn/t13e)
 
-### [看中国高速入口](https://e8.mqia1.gq/xaasa/t11n)
+### [看中国高速入口](https://84.accte.ga/xaasa/t11n)
 
-### [美国之音高速入口](https://e8.mqia1.gq/ssssy/t18m)
+### [美国之音高速入口](https://84.accte.ga/ssssy/q18m)
 
 ***
 
