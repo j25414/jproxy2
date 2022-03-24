@@ -19,9 +19,9 @@
 一键点击 轻松翻墙
 
 
-### [新视觉视频系列](https://85.mqia3.gq/sj.html)
+### [新视觉视频系列](https://va.accte.cf/sj.html)
 
-### [聚缘阁视频网站](https://85.mqia3.gq)
+### [聚缘阁视频网站](https://va.accte.cf)
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
