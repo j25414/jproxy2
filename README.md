@@ -20,9 +20,9 @@
 
 ### [聚缘阁禁闻导航](https://r.fwe3.ga)
 
-### [新视觉视频系列](https://va.accte.cf/sj.html)
+### [新世纪视觉视频系列](https://v1.yiiu.ml/sj.html)
 
-### [聚缘阁视频网站](https://va.accte.cf)
+### [聚缘阁视频网站](https://v1.yiiu.ml/)
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
