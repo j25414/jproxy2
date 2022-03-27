@@ -26,23 +26,23 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://8uu.cffe.tk/66666/r44774p)
+### [动态网高速入口](https://88.cffe.gq/54789/t44774p)
 
-### [无界网高速入口](https://8uu.cffe.tk/66666/b12t)
+### [无界网高速入口](https://88.cffe.gq/54789/b12t)
 
-### [新唐人高速入口](https://8uu.cffe.tk/66666/w5t)
+### [新唐人高速入口](https://88.cffe.gq/54789/b5t)
 
-### [大纪元高速入口](https://8uu.cffe.tk/66666/e7t)
+### [大纪元高速入口](https://88.cffe.gq/54789/b7t)
 
-### [退党网高速入口](https://8uu.cffe.tk/66666/b8e)
+### [退党网高速入口](https://88.cffe.gq/54789/b8e)
 
-### [明慧网高速入口](https://8uu.cffe.tk/66666/b3e)
+### [明慧网高速入口](https://88.cffe.gq/54789/v3e)
 
-### [阿波罗高速入口](https://8uu.cffe.tk/66666/t13e)
+### [阿波罗高速入口](https://88.cffe.gq/54789/v13e)
 
-### [看中国高速入口](https://8uu.cffe.tk/66666/t11n)
+### [看中国高速入口](https://88.cffe.gq/54789/v11n)
 
-### [美国之音高速入口](https://8uu.cffe.tk/66666/q18m)
+### [美国之音高速入口](https://88.cffe.gq/54789/v18m)
 
 
 
