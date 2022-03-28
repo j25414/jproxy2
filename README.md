@@ -26,24 +26,23 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://88a.caae.tk/ccssd/u44774p)
+### [动态网高速入口](https://88k.caaee.gq/ccssd/u44774p)
 
-### [无界网高速入口](https://88a.caae.tk/sssuu/u12t)
+### [无界网高速入口](https://88k.caaee.gq/sssuu/u12t)
 
-### [新唐人高速入口](https://88a.caae.tk/jjsssc/t5t)
+### [新唐人高速入口](https://88k.caaee.gq/jjsssc/t5t)
 
-### [大纪元高速入口](https://88a.caae.tk/bbvsv/g7t)
+### [大纪元高速入口](https://88k.caaee.gq/bbvsv/g7t)
 
-### [退党网高速入口](https://88a.caae.tk/xssw/d8g)
+### [退党网高速入口](https://88k.caaee.gq/xssw/d8g)
 
-### [明慧网高速入口](https://88a.caae.tk/ggaasw/e3g)
+### [明慧网高速入口](https://88k.caaee.gq/ggaasw/e3g)
 
-### [阿波罗高速入口](https://88a.caae.tk/xnnsn/e13a)
+### [阿波罗高速入口](https://88k.caaee.gq/xnnsn/e13a)
 
-### [看中国高速入口](https://88a.caae.tk/xaasa/e11n)
+### [看中国高速入口](https://88k.caaee.gq/xaasa/e11n)
 
-### [美国之音高速入口](https://88a.caae.tk/ssssy/e18m)
-
+### [美国之音高速入口](https://88k.caaee.gq/ssssy/e18m)
 
 
 ***
