@@ -18,11 +18,11 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](https://v1.goou.gq)
+### [聚缘阁禁闻导航](https://9.oppi.tk)
 
-### [新世纪视频系列](https://v1.goou.gq/sj.html)
+### [新世纪视频系列](https://9.oppi.tk/sj.html)
 
-### [聚缘阁视频网站](https://v1.goou.gq/)
+### [聚缘阁视频网站](https://9.oppi.tk/)
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
