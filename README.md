@@ -26,24 +26,23 @@
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
-### [动态网高速入口](https://h.caaee.ml/54786/u44774p)
+### [动态网高速入口](https://89.aoooe.gq/54786/u44774p)
 
-### [无界网高速入口](https://h.caaee.ml/54786/u12t)
+### [无界网高速入口](https://89.aoooe.gq/54786/u12t)
 
-### [新唐人高速入口](https://h.caaee.ml/54786/t5t)
+### [新唐人高速入口](https://89.aoooe.gq/54786/t5t)
 
-### [大纪元高速入口](https://h.caaee.ml/54786/g7t)
+### [大纪元高速入口](https://89.aoooe.gq/54786/g7t)
 
-### [退党网高速入口](https://h.caaee.ml/54786/d8g)
+### [退党网高速入口](https://89.aoooe.gq/54786/d8g)
 
-### [明慧网高速入口](https://h.caaee.ml/54786/e3g)
+### [明慧网高速入口](https://89.aoooe.gq/54786/e3g)
 
-### [阿波罗高速入口](https://h.caaee.ml/54786/e13a)
+### [阿波罗高速入口](https://89.aoooe.gq/54786/e13a)
 
-### [看中国高速入口](https://h.caaee.ml/54786/e11n)
+### [看中国高速入口](https://89.aoooe.gq/54786/e11n)
 
-### [美国之音高速入口](https://h.caaee.ml/54786/e18m)
-
+### [美国之音高速入口](https://89.aoooe.gq/54786/e18m)
 ***
 
 
