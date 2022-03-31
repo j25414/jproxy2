@@ -18,7 +18,7 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](https://dd-union-2082.f32.workers.dev)
+### [聚缘阁禁闻导航](https://s.deaac.cf)
 
 ### [新世纪视频系列](https://vvd-shape-5b61.f32.workers.dev/sj.html)
 
