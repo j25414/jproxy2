@@ -22,7 +22,7 @@
 
 ### [新世纪视频系列](https://vvd-shape-5b61.f32.workers.dev/sj.html)
 
-### [聚缘阁视频网站](https://vvd-shape-5b61.f32.workers.dev/)
+### [聚缘阁视频网站](https://d33-snowflake-5230.maw3.workers.dev)
 
 ### [聚缘阁禁闻导航](https://bitbucket.org/ewwmakye/mo/src/master/README.md)
 
