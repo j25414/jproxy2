@@ -20,23 +20,23 @@
 
 ### [聚缘阁禁闻导航](http://et.gserry.ga)
 
-### [动态网高速入口](https://8r.aaeca.cf/15847/u44774p)
+### [动态网高速入口](https://889.gppt.ml/15847/u44774p)
 
-### [无界网高速入口](https://8r.aaeca.cf/15847/u12t)
+### [无界网高速入口](https://889.gppt.ml/15847/u12t)
 
-### [新唐人高速入口](https://8r.aaeca.cf/15847/t5t)
+### [新唐人高速入口](https://889.gppt.ml/15847/t5t)
 
-### [大纪元高速入口](https://8r.aaeca.cf/15847/g7t)
+### [大纪元高速入口](https://889.gppt.ml/15847/g7t)
 
-### [退党网高速入口](https://8r.aaeca.cf/15847/d8g)
+### [退党网高速入口](https://889.gppt.ml/15847/d8g)
 
-### [明慧网高速入口](https://8r.aaeca.cf/15847/e3g)
+### [明慧网高速入口](https://889.gppt.ml/15847/e3g)
 
-### [阿波罗高速入口](https://8r.aaeca.cf/15847/e13a)
+### [阿波罗高速入口](https://889.gppt.ml/15847/e13a)
 
-### [看中国高速入口](https://8r.aaeca.cf/15847/e11n)
+### [看中国高速入口](https://889.gppt.ml/15847/e11n)
 
-### [美国之音高速入口](https://8r.aaeca.cf/15847/e18m)
+### [美国之音高速入口](https://889.gppt.ml/15847/e18m)
 
 ***
 
