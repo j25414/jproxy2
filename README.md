@@ -18,7 +18,7 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](https://s1.dccae.ga)
+### [聚缘阁禁闻导航](http://et.gserry.ga)
 
 ### [动态网高速入口](https://8r.aaeca.cf/15847/u44774p)
 
