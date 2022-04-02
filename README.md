@@ -14,7 +14,7 @@
 
 
 
-**无需技术制作聚缘阁代理教程。**[下载](https://gitlab.com/j25414/jyg/-/raw/master/jygdl.rar)
+### 无需技术制作聚缘阁代理教程[下载](https://gitlab.com/j25414/jyg/-/raw/master/jygdl.rar)  ![](http://daohang.juyuange.eu.org/j2.gif)
 
 一键点击 轻松翻墙
 
