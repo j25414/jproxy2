@@ -22,21 +22,24 @@
 
 ### [动态网高速入口](https://x3.cx/t99)
 
-### [无界网高速入口](https://88g.byui.ml/366698/u12t)
+### [动态网高速入口](https://4b.wams.ro/366698/u44774p)
 
-### [新唐人高速入口](https://88g.byui.ml/366698/t5t)
+### [无界网高速入口](https://4b.wams.ro/366698/u12t)
 
-### [大纪元高速入口](https://88g.byui.ml/366698/g7t)
+### [新唐人高速入口](https://4b.wams.ro/366698/t5t)
 
-### [退党网高速入口](https://88g.byui.ml/366698/d8g)
+### [大纪元高速入口](https://4b.wams.ro/366698/g7t)
 
-### [明慧网高速入口](https://88g.byui.ml/366698/e3g)
+### [退党网高速入口](https://4b.wams.ro/366698/d8g)
 
-### [阿波罗高速入口](https://88g.byui.ml/366698/e13a)
+### [明慧网高速入口](https://4b.wams.ro/366698/e3g)
 
-### [看中国高速入口](https://88g.byui.ml/366698/e11n)
+### [阿波罗高速入口](https://4b.wams.ro/366698/e13a)
 
-### [美国之音高速入口](https://88g.byui.ml/366698/e18m)
+### [看中国高速入口](https://4b.wams.ro/366698/e11n)
+
+### [美国之音高速入口](https://4b.wams.ro/366698/e18m)
+
 ***
 
 
