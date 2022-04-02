@@ -20,7 +20,7 @@
 
 ### [聚缘阁禁闻导航](https://wispy-snowflake-1498.gi6vi15d.workers.dev/aawe/e20m)
 
-### [动态网高速入口](https://88g.byui.ml/366698/u44774p)
+### [动态网高速入口](https://x3.cx/t99)
 
 ### [无界网高速入口](https://88g.byui.ml/366698/u12t)
 
