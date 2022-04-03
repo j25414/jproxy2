@@ -18,7 +18,7 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](https://wispy-snowflake-1498.gi6vi15d.workers.dev/aawe/e20m)
+### [聚缘阁禁闻导航](https:/a4.juyy.cf/aawe/e20m)
 
 ### [动态网高速入口](https://op2.orbanbalazs.com/15847/u44774p)
 
