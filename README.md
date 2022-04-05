@@ -20,23 +20,23 @@
 
 ### [聚缘阁禁闻导航](https:/8u.joore.ml/aawe/e20m)
 
-### [动态网高速入口](https://8u.joore.ml/366698/u44774p)
+### [动态网高速入口](https://6u.nvaae.ml/14758/t44774p)
 
-### [无界网高速入口](https://8u.joore.ml/366698/u12t)
+### [无界网高速入口](https://6u.nvaae.ml/14758/b12t)
 
-### [新唐人高速入口](https://8u.joore.ml/366698/t5t)
+### [新唐人高速入口](https://6u.nvaae.ml/14758/b5t)
 
-### [大纪元高速入口](https://8u.joore.ml/366698/g7t)
+### [大纪元高速入口](https://6u.nvaae.ml/14758/b7t)
 
-### [退党网高速入口](https://8u.joore.ml/366698/d8g)
+### [退党网高速入口](https://6u.nvaae.ml/14758/b8g)
 
-### [明慧网高速入口](https://8u.joore.ml/366698/e3g)
+### [明慧网高速入口](https://6u.nvaae.ml/14758/b3g)
 
-### [阿波罗高速入口](https://8u.joore.ml/366698/e13a)
+### [阿波罗高速入口](https://6u.nvaae.ml/14758/b13a)
 
-### [看中国高速入口](https://8u.joore.ml/366698/e11n)
+### [看中国高速入口](https://6u.nvaae.ml/14758/b11n)
 
-### [美国之音高速入口](https://8u.joore.ml/366698/e18m)
+### [美国之音高速入口](https://6u.nvaae.ml/14758/b18m)
 
 
 ***
