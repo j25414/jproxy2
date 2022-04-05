@@ -18,25 +18,26 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](https:/d2.vccro.ml/aawe/e20m)
+### [聚缘阁禁闻导航](https:/8u.joore.ml/aawe/e20m)
 
-### [动态网高速入口](https://3d.guoo.ml/366698/u44774p)
+### [动态网高速入口](https://8u.joore.ml/366698/u44774p)
 
-### [无界网高速入口](https://3d.guoo.ml/366698/u12t)
+### [无界网高速入口](https://8u.joore.ml/366698/u12t)
 
-### [新唐人高速入口](https://3d.guoo.ml/366698/t5t)
+### [新唐人高速入口](https://8u.joore.ml/366698/t5t)
 
-### [大纪元高速入口](https://3d.guoo.ml/366698/g7t)
+### [大纪元高速入口](https://8u.joore.ml/366698/g7t)
 
-### [退党网高速入口](https://3d.guoo.ml/366698/d8g)
+### [退党网高速入口](https://8u.joore.ml/366698/d8g)
 
-### [明慧网高速入口](https://3d.guoo.ml/366698/e3g)
+### [明慧网高速入口](https://8u.joore.ml/366698/e3g)
 
-### [阿波罗高速入口](https://3d.guoo.ml/366698/e13a)
+### [阿波罗高速入口](https://8u.joore.ml/366698/e13a)
 
-### [看中国高速入口](https://3d.guoo.ml/366698/e11n)
+### [看中国高速入口](https://8u.joore.ml/366698/e11n)
 
-### [美国之音高速入口](https://3d.guoo.ml/366698/e18m)
+### [美国之音高速入口](https://8u.joore.ml/366698/e18m)
+
 
 ***
 
