@@ -20,23 +20,23 @@
 
 ### [聚缘阁禁闻导航](https://89.aqoo4.ml/aabe/j20e)
 
-### [动态网高速入口](https://89.aqoo4.ml/acbe/u44774p)
+### [动态网高速入口](https://66u.nzca.workers.dev/acbe/u44774p)
 
-### [无界网高速入口](https://89.aqoo4.ml/acbe/u12t)
+### [无界网高速入口](https://66u.nzca.workers.dev/acbe/u12t)
 
-### [新唐人高速入口](https://89.aqoo4.ml/acbe/t5t)
+### [新唐人高速入口](https://66u.nzca.workers.dev/acbe/t5t)
 
-### [大纪元高速入口](https://89.aqoo4.ml/acbe/g7t)
+### [大纪元高速入口](https://66u.nzca.workers.dev/acbe/g7t)
 
-### [退党网高速入口](https://89.aqoo4.ml/acbe/d8g)
+### [退党网高速入口](https://66u.nzca.workers.dev/acbe/d8g)
 
-### [明慧网高速入口](https://89.aqoo4.ml/acbe/e3g)
+### [明慧网高速入口](https://66u.nzca.workers.dev/acbe/e3g)
 
-### [阿波罗高速入口](https://89.aqoo4.ml/acbe/e13a)
+### [阿波罗高速入口](https://66u.nzca.workers.dev/acbe/e13a)
 
-### [看中国高速入口](https://89.aqoo4.ml/acbe/e11n)
+### [看中国高速入口](https://66u.nzca.workers.dev/acbe/e11n)
 
-### [美国之音高速入口](https://89.aqoo4.ml/acbe/e18m)
+### [美国之音高速入口](https://66u.nzca.workers.dev/acbe/e18m)
 
 ***
 
