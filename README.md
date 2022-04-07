@@ -18,23 +18,25 @@
 
 一键点击 轻松翻墙
 
-### [动态网高速入口](https://misty-unit-9e6b.f32.workers.dev/acbe/u44774p)
+### [聚缘阁禁闻导航](http://36.aqoo5.cf/25588/j20e)
 
-### [无界网高速入口](https://misty-unit-9e6b.f32.workers.dev/acbe/u12t)
+### [动态网高速入口](http://36.aqoo5.cf/41774/u44774p)
 
-### [新唐人高速入口](https://misty-unit-9e6b.f32.workers.dev/acbe/t5t)
+### [无界网高速入口](http://36.aqoo5.cf/41774/u12t)
 
-### [大纪元高速入口](https://misty-unit-9e6b.f32.workers.dev/acbe/g7t)
+### [新唐人高速入口](http://36.aqoo5.cf/41774/t5t)
 
-### [退党网高速入口](https://misty-unit-9e6b.f32.workers.dev/acbe/d8g)
+### [大纪元高速入口](http://36.aqoo5.cf/41774/g7t)
 
-### [明慧网高速入口](https://misty-unit-9e6b.f32.workers.dev/acbe/e3g)
+### [退党网高速入口](http://36.aqoo5.cf/41774/d8g)
 
-### [阿波罗高速入口](https://misty-unit-9e6b.f32.workers.dev/acbe/e13a)
+### [明慧网高速入口](http://36.aqoo5.cf/41774/e3g)
 
-### [看中国高速入口](https://misty-unit-9e6b.f32.workers.dev/acbe/e11n)
+### [阿波罗高速入口](http://36.aqoo5.cf/41774/e13a)
 
-### [美国之音高速入口](https://misty-unit-9e6b.f32.workers.dev/acbe/e18m)
+### [看中国高速入口](http://36.aqoo5.cf/41774/e11n)
+
+### [美国之音高速入口](http://36.aqoo5.cf/41774/e18m)
 
 
 ***
