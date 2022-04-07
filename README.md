@@ -18,25 +18,25 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](https://214574.domeg.ga/25588/j20e)
+### [聚缘阁禁闻导航](https://89.aqoo4.ml/aabe/j20e)
 
-### [动态网高速入口](https://214574.domeg.ga/41774/u44774p)
+### [动态网高速入口](https://89.aqoo4.ml/acbe/u44774p)
 
-### [无界网高速入口](https://214574.domeg.ga/41774/u12t)
+### [无界网高速入口](https://89.aqoo4.ml/acbe/u12t)
 
-### [新唐人高速入口](https://214574.domeg.ga/41774/t5t)
+### [新唐人高速入口](https://89.aqoo4.ml/acbe/t5t)
 
-### [大纪元高速入口](https://214574.domeg.ga/41774/g7t)
+### [大纪元高速入口](https://89.aqoo4.ml/acbe/g7t)
 
-### [退党网高速入口](https://214574.domeg.ga/41774/d8g)
+### [退党网高速入口](https://89.aqoo4.ml/acbe/d8g)
 
-### [明慧网高速入口](https://214574.domeg.ga/41774/e3g)
+### [明慧网高速入口](https://89.aqoo4.ml/acbe/e3g)
 
-### [阿波罗高速入口](https://214574.domeg.ga/41774/e13a)
+### [阿波罗高速入口](https://89.aqoo4.ml/acbe/e13a)
 
-### [看中国高速入口](https://214574.domeg.ga/41774/e11n)
+### [看中国高速入口](https://89.aqoo4.ml/acbe/e11n)
 
-### [美国之音高速入口](https://214574.domeg.ga/41774/e18m)
+### [美国之音高速入口](https://89.aqoo4.ml/acbe/e18m)
 
 ***
 
