@@ -18,23 +18,25 @@
 
 一键点击 轻松翻墙
 
-### [动态网高速入口](https://yoope.yoooe.ml/aecwpp/b26663p)
+### [聚缘阁禁闻导航](https://32432.cafg.gq/25588/j20e)
 
-### [无界网高速入口](https://yoope.yoooe.ml/aecwpp/e12t)
+### [动态网高速入口](https://32432.cafg.gq/32654/u44774p)
 
-### [新唐人高速入口](https://yoope.yoooe.ml/aecwpp/e5t)
+### [无界网高速入口](https://32432.cafg.gq/32654/u12t)
 
-### [大纪元高速入口](https://yoope.yoooe.ml/aecwpp/e7t)
+### [新唐人高速入口](https://32432.cafg.gq/32654/t5t)
 
-### [退党网高速入口](https://yoope.yoooe.ml/aecwpp/e8g)
+### [大纪元高速入口](https://32432.cafg.gq/32654/g7t)
 
-### [明慧网高速入口](https://yoope.yoooe.ml/aecwpp/e3g)
+### [退党网高速入口](https://32432.cafg.gq/32654/d8g)
 
-### [阿波罗高速入口](https://yoope.yoooe.ml/aecwpp/e13a)
+### [明慧网高速入口](https://32432.cafg.gq/32654/e3g)
 
-### [看中国高速入口](https://yoope.yoooe.ml/aecwpp/e11n)
+### [阿波罗高速入口](https://32432.cafg.gq/32654/e13a)
 
-### [美国之音高速入口](https://yoope.yoooe.ml/aecwpp/e18m)
+### [看中国高速入口](https://32432.cafg.gq/32654/e11n)
+
+### [美国之音高速入口](https://32432.cafg.gq/32654/e18m)
 
 ***
 
