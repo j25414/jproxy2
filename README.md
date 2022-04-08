@@ -18,26 +18,25 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁禁闻导航](https://896.aooc.tk/kaac/j20e)
+### [聚缘阁禁闻导航](https://bv.aooc.gq/kaac/j20e)
 
-### [动态网高速入口](https://896.aooc.tk/aaae/e46544p)
+### [动态网高速入口](https://bv.aooc.gq/aaae/e46544p)
 
-### [无界网高速入口](https://896.aooc.tk/aaae/u12r)
+### [无界网高速入口](https://bv.aooc.gq/aaae/u12r)
 
-### [新唐人高速入口](https://896.aooc.tk/aaae/t5r)
+### [新唐人高速入口](https://bv.aooc.gq/aaae/t5r)
 
-### [大纪元高速入口](https://896.aooc.tk/aaae/r7t)
+### [大纪元高速入口](https://bv.aooc.gq/aaae/r7t)
 
-### [退党网高速入口](https://896.aooc.tk/aaae/r8g)
+### [退党网高速入口](https://bv.aooc.gq/aaae/r8g)
 
-### [明慧网高速入口](https://896.aooc.tk/aaae/r3g)
+### [明慧网高速入口](https://bv.aooc.gq/aaae/r3g)
 
-### [阿波罗高速入口](https://896.aooc.tk/aaae/e13w)
+### [阿波罗高速入口](https://bv.aooc.gq/aaae/e13w)
 
-### [看中国高速入口](https://896.aooc.tk/aaae/w11n)
+### [看中国高速入口](https://bv.aooc.gq/aaae/w11n)
 
-### [美国之音高速入口](https://896.aooc.tk/aaae/w18m)
-
+### [美国之音高速入口](https://bv.aooc.gq/aaae/w18m)
 
 ***
 
