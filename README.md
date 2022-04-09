@@ -22,9 +22,9 @@
 
 ### [聚缘阁禁闻导航](https://365874er.uae7.ga/kaac/j20e)
 
-### [动态网高速入口](https://365874er.uae7.ga/aaae/e46544p)
+### [动态网高速入口](https://365874er.hyy9.cf/aaae/e46544p)
 
-### [无界网高速入口](https://365874er.uae7.ga/aaae/u12r)
+### [无界网高速入口](https://365874er.hyy9.cf/aaae/u12r)
 
 ### [新唐人高速入口](https://365874er.uae7.ga/aaae/t5r)
 
