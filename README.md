@@ -20,25 +20,25 @@
 
 ### [重点推荐翻墙入口](https://x3.cx/123)
 
-### [聚缘阁禁闻导航](https://5b.wams.ro/kaac/j20e)
+### [聚缘阁禁闻导航](https://x3.cx/123)
 
-### [动态网高速入口](https://5b.wams.ro/aaae/e46544p)
+### [动态网高速入口](https://x3.cx/123)
 
-### [无界网高速入口](https://5b.wams.ro/aaae/u12r)
+### [无界网高速入口](https://x3.cx/123)
 
-### [新唐人高速入口](https://5b.wams.ro/aaae/t5r)
+### [新唐人高速入口](https://x3.cx/123)
 
-### [大纪元高速入口](https://5b.wams.ro/aaae/r7t)
+### [大纪元高速入口](https://x3.cx/123)
 
-### [退党网高速入口](https://5b.wams.ro/aaae/r8g)
+### [退党网高速入口](https://x3.cx/123)
 
-### [明慧网高速入口](https://5b.wams.ro/aaae/r3g)
+### [明慧网高速入口](https://x3.cx/123)
 
-### [阿波罗高速入口](https://5b.wams.ro/aaae/e13w)
+### [阿波罗高速入口](https://x3.cx/123)
 
-### [看中国高速入口](https://5b.wams.ro/aaae/w11n)
+### [看中国高速入口](https://x3.cx/123)
 
-### [美国之音高速入口](https://5b.wams.ro/aaae/w18m)
+### [美国之音高速入口](https://x3.cx/123)
 
 ***
 
