@@ -4,7 +4,7 @@
 
 **电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的。**
 
-本站推广网址:https://x3.cx/jyg8
+本站推广网址:https://cut.gt/jyg8
 
 ### [聚缘阁代理电脑j325版隆重推出](https://gitlab.com/juyuange/2/-/raw/master/j325dn.rar)2021/6/27
 
