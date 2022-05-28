@@ -18,23 +18,23 @@
 
 一键点击 轻松翻墙
 
-### [动态网高速入口](https://3a.aac6.ga/32654/u44774p)
+### [动态网高速入口](https://dik.si/333tz)
 
-### [无界网高速入口](https://3a.aac6.ga/32654/u12t)
+### [无界网高速入口](https://dik.si/333tz)
 
-### [新唐人高速入口](https://3a.aac6.ga/32654/t5t)
+### [新唐人高速入口](https://dik.si/333tz)
 
-### [大纪元高速入口](https://32432ac.paei.cf/32654/g7t)
+### [大纪元高速入口](https://dik.si/333tz)
 
-### [退党网高速入口](https://32432ac.paei.cf/32654/d8g)
+### [退党网高速入口](https://dik.si/333tz)
 
-### [明慧网高速入口](https://32432ac.paei.cf/32654/e3g)
+### [明慧网高速入口](https://dik.si/333tz)
 
-### [阿波罗高速入口](https://32432ac.paei.cf/32654/e13a)
+### [阿波罗高速入口](https://dik.si/333tz)
 
-### [看中国高速入口](https://32432ac.paei.cf/32654/e11n)
+### [看中国高速入口](https://dik.si/333tz)
 
-### [美国之音高速入口](https://32432ac.paei.cf/32654/e18m)
+### [美国之音高速入口](https://dik.si/333tz)
 
 ***
 
