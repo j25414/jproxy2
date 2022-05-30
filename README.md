@@ -18,6 +18,9 @@
 
 一键点击 轻松翻墙
 
+### [聚缘阁视频网站](https://cut.gt/jyttv)
+
+
 ### [动态网高速入口](https://dik.si/333tz)
 
 ### [无界网高速入口](https://dik.si/333tz)
