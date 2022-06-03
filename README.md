@@ -20,7 +20,7 @@
 
 
 
-### [聚缘阁视频网站](https://dik.si/jygdh)
+### [聚缘阁视频网站](https://goo.su/jygtv)
 
 ### [聚缘阁视频网站](https://dik.si/jygdh)
 
