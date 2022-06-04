@@ -27,7 +27,7 @@
 
 ### [动态网高速入口](https://dik.si/333tz)
 
-### [无界网高速入口](https://dik.si/333tz)
+### [无界网高速入口](https://goo.by/go1)
 
 ### [新唐人高速入口](https://dik.si/333tz)
 
