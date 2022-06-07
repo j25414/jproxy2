@@ -20,9 +20,9 @@
 
 
 
-### [聚缘阁视频网站]([https://goo.by/jygtv)
+### [聚缘阁视频网站](https://cut.webs.com.gt/33t)
 
-### [聚缘阁视频网站](https://dik.si/jygdh)
+### [聚缘阁视频网站](https://cut.webs.com.gt/33h)
 
 
 ### [动态网高速入口](https://dik.si/333tz)
