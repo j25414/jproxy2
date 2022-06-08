@@ -20,28 +20,23 @@
 
 
 
-### [聚缘阁视频网站](https://cut.webs.com.gt/33t)
+### [动态网高速入口](https://cut.webs.com.gt/33t)
 
-### [聚缘阁视频网站](https://cut.webs.com.gt/33h)
+### [无界网高速入口](https://cut.webs.com.gt/33t)
 
+### [新唐人高速入口](https://cut.webs.com.gt/33t)
 
-### [动态网高速入口](https://dik.si/333tz)
+### [大纪元高速入口](https://cut.webs.com.gt/33t)
 
-### [无界网高速入口](https://goo.by/go1)
+### [退党网高速入口](https://cut.webs.com.gt/33t)
 
-### [新唐人高速入口](https://dik.si/333tz)
+### [明慧网高速入口](https://cut.webs.com.gt/33t)
 
-### [大纪元高速入口](https://dik.si/333tz)
+### [阿波罗高速入口](https://cut.webs.com.gt/33t)
 
-### [退党网高速入口](https://dik.si/333tz)
+### [看中国高速入口](https://cut.webs.com.gt/33t)
 
-### [明慧网高速入口](https://dik.si/333tz)
-
-### [阿波罗高速入口](https://dik.si/333tz)
-
-### [看中国高速入口](https://dik.si/333tz)
-
-### [美国之音高速入口](https://dik.si/333tz)
+### [美国之音高速入口](https://cut.webs.com.gt/33t)
 
 ***
 
