@@ -21,25 +21,25 @@
 
 
 
-### [聚缘阁禁闻导航](https://32432.swera.ml/25588/j20e)
+### [聚缘阁禁闻导航](https://32432v.swera.ml/25588/j20e)
 
-### [动态网高速入口](https://32432.swera.ml/32654/u44774p)
+### [动态网高速入口](https://32432v.swera.ml/32654/u44774p)
 
-### [无界网高速入口](https://32432.swera.ml/32654/u12t)
+### [无界网高速入口](https://vvaa.swera.ml/32654/u12t)
 
-### [新唐人高速入口](https://32432.swera.ml/32654/t5t)
+### [新唐人高速入口](https://bb.swera.ml/32654/t5t)
 
-### [大纪元高速入口](https://32432.swera.ml/32654/g7t)
+### [大纪元高速入口](https://bba.swera.ml/32654/g7t)
 
-### [退党网高速入口](https://32432.swera.ml/32654/d8g)
+### [退党网高速入口](https://ree.swera.ml/32654/d8g)
 
-### [明慧网高速入口](https://32432.swera.ml/32654/e3g)
+### [明慧网高速入口](https://rr4.swera.ml/32654/e3g)
 
-### [阿波罗高速入口](https://32432.swera.ml/32654/e13a)
+### [阿波罗高速入口](https://faa.swera.ml/32654/e13a)
 
-### [看中国高速入口](https://32432.swera.ml/32654/e11n)
+### [看中国高速入口](https://3243a2.swera.ml/32654/e11n)
 
-### [美国之音高速入口](https://32432.swera.ml/32654/e18m)
+### [美国之音高速入口](https://324a32.swera.ml/32654/e18m)
 
 ***
 
