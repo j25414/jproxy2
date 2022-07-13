@@ -18,9 +18,9 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网站](https://x3.cx/jtv)
+### [聚缘阁视频网站](https://x3.cx/3-dtw)
 
-### [聚缘阁禁闻导航](https://cut.tw/d-xtr)
+### [聚缘阁禁闻导航](https://x3.cx/3-dtw)
 
 ### [动态网高速入口](https://x3.cx/3-dtw)
 
