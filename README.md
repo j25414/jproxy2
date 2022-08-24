@@ -18,27 +18,27 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网站](https://cut.tw/d-xtr)
+### [聚缘阁视频网站](https://cut.tn/jyg666)
 
-### [聚缘阁禁闻导航](https://x3.cx/3-dtw)
+### [聚缘阁禁闻导航](https://cut.tn/jyg666)
 
-### [动态网高速入口](https://x3.cx/3-dtw)
+### [动态网高速入口](https://cut.tn/jyg666)
 
-### [无界网高速入口](https://x3.cx/3-dtw)
+### [无界网高速入口](https://cut.tn/jyg666)
 
-### [新唐人高速入口](https://x3.cx/3-dtw)
+### [新唐人高速入口](https://cut.tn/jyg666)
 
-### [大纪元高速入口](https://x3.cx/3-dtw)
+### [大纪元高速入口](https://cut.tn/jyg666)
 
-### [退党网高速入口](https://x3.cx/3-dtw)
+### [退党网高速入口](https://cut.tn/jyg666)
 
-### [明慧网高速入口](https://x3.cx/3-dtw)
+### [明慧网高速入口](https://cut.tn/jyg666)
 
-### [阿波罗高速入口](https://x3.cx/3-dtw)
+### [阿波罗高速入口](https://cut.tn/jyg666)
 
-### [看中国高速入口](https://x3.cx/3-dtw)
+### [看中国高速入口](https://cut.tn/jyg666)
 
-### [美国之音高速入口](https://x3.cx/3-dtw)
+### [美国之音高速入口](https://cut.tn/jyg666)
 ***
 
 
