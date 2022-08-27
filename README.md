@@ -18,9 +18,7 @@
 
 一键点击 轻松翻墙
 
-### [聚缘阁视频网站](https://cut.tn/jyg666)
-
-### [聚缘阁禁闻导航](https://cut.tn/jyg666)
+### [聚缘阁禁闻导航](https://lihi2.cc/Er0u0)
 
 ### [动态网高速入口](https://cut.tn/jyg666)
 
