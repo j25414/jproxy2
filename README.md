@@ -20,7 +20,7 @@
 
 ### [聚缘阁禁闻导航](https://lihi2.cc/Er0u0)
 
-### [动态网高速入口](https://cut.tn/jyg666)
+### [动态网高速入口](https://lihi2.cc/5BSu9)
 
 ### [无界网高速入口](https://cut.tn/jyg666)
 
